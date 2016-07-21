@@ -1,4 +1,4 @@
-## Carlos (footballer, born 1995)
+## 292nd Infantry Division (Wehrmacht)
 
-Carlos Alberto Carvalho da Silva Júnior (born 15 August 1995), simply known as Carlos, is a Brazilian footballer who plays as a striker for Atlético Mineiro.
+The 292nd Infantry Division was a German infantry formation which fought during World War II.
 
