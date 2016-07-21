@@ -1,12 +1,4 @@
-## Knepper
+## 1978 Georgian demonstrations
 
-Knepper may refer to:
-Émile Knepper (born 1892), Luxembourgian gymnast who competed in the 1912 Summer Olympics
-Arnie Knepper (1930–1992), American racecar driver
-Bob Knepper (born 1954), former pitcher in Major League Baseball with a 15-year career from 1976 to 1990
-Charlie Knepper (1871–1946), Major League Baseball player, a right-handed pitcher who batted from the right side
-James Knepper (born 1932), former Republican member of the Pennsylvania House of Representatives
-Jean-Bernard Knepper (1638–1698), Luxembourg advocat and notary, and from 1693 to 1698 the Mayor of the City of Luxembourg
-Jimmy Knepper (1927–2003), American jazz trombonist
-Paul H. Knepper, aircraft engineer from Tamaqua, PA
-Robert Knepper (born 1959), American actor
+14 April 1978 demonstrations in Tbilisi, capital of the Georgian SSR, took place in response to an attempt by the Soviet government to change the constitutional status of languages in Georgia. After a new Soviet Constitution was adopted in October 1977, the Supreme Soviet of the Georgian SSR considered a draft constitution in which, in contrast to the Constitution of 1936, Georgian was no longer declared to be the sole State language. A series of indoor and outdoor actions of protest ensued and implied with near-certainty there would be a clash between several thousands of demonstrators and the Soviet government, but Georgian Communist Party chief Eduard Shevardnadze negotiated with the central authorities in Moscow and managed to obtain permission to retain the previous status of the Georgian language.
+This highly unusual concession to an open expression of opposition to state policy of the Soviet Union defused popular anger in Tbilisi, but triggered tensions in the Abkhaz ASSR (Abkhazia), an autonomous republic in northwest Georgia, where Abkhaz Communist officials protested against what they saw as a capitulation to Georgian nationalism and demanded that their autonomy be transferred from Georgia to the Russian SFSR. The request was rejected but a number of political, cultural and economic concessions were made. Since 1990, 14 April has been celebrated in Georgia as the Day of the Georgian Language.
