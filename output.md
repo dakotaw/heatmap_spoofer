@@ -1,3 +1,3 @@
-## Fred Doelling
+## Speedex Tractors
 
-Fred Frank Doelling (born September 27, 1938 in Valparaiso, Indiana) is a former American football safety in the National Football League for the Dallas Cowboys. He played college football at the University of Pennsylvania.
+Speedex Tractors were a line of small garden tractors produced in various factories in Ohio between 1935 and 2000.
