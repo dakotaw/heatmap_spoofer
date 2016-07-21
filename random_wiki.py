@@ -7,7 +7,10 @@ def get_random_page():
 	return wikipedia.page(wikipedia.random())
 
 def write_page(page, output_file='output.md'):
-	"""Write a wikipedia page's title and summary in markdown."""
+	"""Write a wikipedia page's title and summary in markdown.
+	   Returns output file name."""
 	with open(output_file, 'w') as f:
 		f.write('## {}\n\n'.format(page.title.encode('utf-8')))
 		f.write(page.summary.encode('utf-8'))
+
+	return output_file
