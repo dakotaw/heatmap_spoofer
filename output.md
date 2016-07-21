@@ -1,3 +1,3 @@
-## Speedex Tractors
+## Jun Chikuma
 
-Speedex Tractors were a line of small garden tractors produced in various factories in Ohio between 1935 and 2000.
+Jun Chikuma (竹間 ジュン, Chikuma Jun) is a Japanese music composer and musician. She is most known for her various contributions to the Bomberman series, amongst other games. Since 1992, she has studied ney performance and Tunisian style composition under professors Slah Manaa, Ali Sriti and Zakia Hannashi at l'Institut Superieur de la Musique de Tunis, and studied riq under Haytham Farghaly of the same institute. She currently curates Arab-music.com, and has also made music for many TV shows, films, and commercials. She is also a part-time lecture at Kokushikan University, and has since performed many concerts with the classical Arabic music ensemble Le Club Bachraf, with oud player Yoshiko Matsuda and darbuka player Takako Nomiya.
