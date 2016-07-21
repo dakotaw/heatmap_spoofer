@@ -1,11 +1,14 @@
-# github-spoofer
+# heatmap-spoofer
 
-A little throwaway script for arbitrarily pushing code to Github to keep your heatmap active because tech recuiters care wayyyy too much about your heatmap. 
+A little throwaway script for arbitrarily pushing code to Github to keep your heatmap active because casual observers care wayyyy too much about your heatmap. 
 
 Probably better off as a gist but whatever yolo
 
-## Setup
+## Quick Setup
 
-1. Download and install. 
-2. Make sure user is able to contribute to this repo.
-3. Run on a cronjob.
+`setup.sh` will install requirements and set up the cronjob to run every 24 hours. 
+
+1. Fork this repo.
+2. Clone the repo on the server that will be running the script.
+3. Run `sh ./setup.sh [github email]` on same server.
+4. Profit
