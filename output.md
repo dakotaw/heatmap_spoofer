@@ -1,4 +1,3 @@
-## 2B1 conference
+## Florida West International Airways
 
-The 2B1 Conference was held in 1997 at the MIT Media Lab with the purpose of circumventing technology barriers between the developed and developing World. A core premise was that young people tend to learn computers faster than adults, thus, it is imperative the young populations of developing countries get access to computers so that as they grow up, they can interact with the rest of the World and encourage more social and economic prosperity. Many concepts preceding the One Laptop Per Child project were discussed at the 2B1 Conference.
-The 2B1 Conference was also the birthplace of Nation1.
+Florida West International Airways, a subsidiary of Atlas Air Worldwide Holdings, is a cargo airline based at Miami International Airport. It operates scheduled and charter services worldwide, with its main markets in Latin America, the Caribbean and the USA.
