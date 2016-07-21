@@ -1,3 +1,4 @@
-##Japanese submarine Ro-45
+## Organization of the government of Thailand
 
-The Japanese submarine Ro-45 was a Kaichū type submarine of the K6 sub-class built for the Imperial Japanese Navy (IJN) during the 1930s.
+Thailand is a unitary state in Southeast Asia. The administrative services of the executive branch of the government are regulated by the National Government Organisation Act, BE 2534 (1991) (พระราชบัญญัติระเบียบบริหารราชการแผ่นดิน พ.ศ. 2534). Under this Act, the services are divided into three levels: central, provincial and local.
+
