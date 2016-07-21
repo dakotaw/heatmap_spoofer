@@ -1,3 +1,2 @@
-## Schilcher (wine)
+## 2004 in spaceflight
 
-Schilcher is a wine produced solely in the Austrian region of Western Styria (Weststeiermark) and Southern Burgenland (Südburgenland), in the districts of Deutschlandsberg and Voitsberg, sharing a border with Slovenia and Carinthia to the south and west. The wine growing area is the smallest in Europe. The Schilcher wine itself is a distinct rosé made from the indigenous Blauer Wildbacher grape. The colour ranges from a light onion tinge to a deep ruby. The grape was once a wild variety which was said to contain alcohol compounds which, in turn, allegedly would induce wild inebriation, hence its colloquial name Rabiatperle - rabid pearl. The name Schilcher originates from the Middle High German word schillern meaning to radiate with colour.
