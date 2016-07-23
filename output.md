@@ -1,4 +1,4 @@
-## Czułówek
+## The Mystery at Lilac Inn
 
-Czułówek [t͡ʂuˈwuvɛk] is a village in the administrative district of Gmina Czernichów, within Kraków County, Lesser Poland Voivodeship, in southern Poland. It lies approximately 7 kilometres (4 mi) north of Czernichów and 19 km (12 mi) west of the regional capital Kraków.
-The village has a population of 420.
+The Mystery At Lilac Inn is the fourth volume in the Nancy Drew Mystery Stories series. It was first published in 1931 under the pseudonym Carolyn Keene. Mildred Wirt Benson was the ghostwriter for the 1931 edition.
+In 1961, Harriet Stratemeyer Adams extensively revised the novel, creating a completely different story. The original omitted the lead characters from much of the action, the titular inn was only a place where a crime was committed with minor investigatory follow-up, and a domestic help sub-plot was out-of-place in 1961. Ethnic slurs and opinions were removed.
