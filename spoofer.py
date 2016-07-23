@@ -15,7 +15,10 @@ def write_page(page, output_file='output.md'):
 	   Returns output file name."""
 	with open(output_file, 'w') as f:
 		f.write('## {}\n\n'.format(page.title.encode('utf-8')))
-		f.write(page.summary.encode('utf-8'))
+		try:
+			f.write(page.summary.encode('utf-8'))
+		except wikipedia.exceptions.DisambiguationError:
+			f.write('Disambiguation page, cannot summarize.')
 
 	return output_file
 
