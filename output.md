@@ -1,3 +1,4 @@
-## Stamneshella
+## Escondido River (Brazil)
 
-Stamneshella or Stamnes is a village in Vaksdal municipality, Hordaland county, Norway. It is located along the northern part of the Veafjorden, at the entrance to the Bolstadfjorden. The village is an old church site, with records showing a church in this village dating back to the early 14th century. The present Stamnes Church was built in 1861. The village also has a shop, a daycare centre, and a preschool. There a small bridge over the Bolstadfjorden on the eastern end of the village. It connects to a small residential area on the other side of the fjord that is surrounded by mountains and the fjord. About 1 kilometre (0.62 mi) northwest of the village lies the Kallestadsundet Bridge, which connects the mainland to the island of Osterøy, across the Veafjorden.
+The Escondido River is a river of Rondônia state in western Brazil.
+
