@@ -1,27 +1,46 @@
-#!/usr/local/python
+#!/usr/local/ python
 
 from git import Repo
-from os import getcwd
 from datetime import datetime
 from random import normalvariate as randnorm
-import random_wiki
+import wikipedia
+import os
 
-# Set repo to current directory.
-repo = Repo(getcwd())
+def get_random_page():
+	"""Return a random wikipedia page as a wikipedia object. """
+	return wikipedia.page(wikipedia.random())
 
-# We want between 0 - 10 commits, but want to weight it on the lighter side;
-# maybe slightly more realistic this way?
-num_commits = int(randnorm(2.5, 1.25))
+def write_page(page, output_file='output.md'):
+	"""Write a wikipedia page's title and summary in markdown.
+	   Returns output file name."""
+	with open(output_file, 'w') as f:
+		f.write('## {}\n\n'.format(page.title.encode('utf-8')))
+		f.write(page.summary.encode('utf-8'))
 
-while num_commits > 0:
+	return output_file
 
-	# Get a random page from Wikipedia and write it to a markdown file. 
-	random_page = random_wiki.get_random_page()
-	outfile = random_wiki.write_page(random_page)
-	
-	repo.git.add(outfile)
-	repo.git.commit(m='Commiting article on {}.'.format(random_page.title.encode(
-		'utf-8')))
-	repo.git.push()
+def main():
 
-	num_commits -= 1
+	repo = Repo(os.path.dirname(os.path.abspath(__file__)))
+
+	# Choose how many commits for the day.
+	num_commits = int(randnorm(2.5, 1.25))
+	print 'Running {} commits.'.format(num_commits)
+
+	while num_commits > 0:
+
+		# Get a random page from Wikipedia and write it to a markdown file. 
+		random_page = get_random_page()
+		outfile = write_page(random_page)
+		
+		repo.git.add(outfile)
+		commit_message = 'Commiting article on {}.'.format(random_page.title.encode(
+			'utf-8'))
+		print commit_message
+		repo.git.commit(m=commit_message)
+		repo.git.push()
+
+		num_commits -= 1
+
+if __name__ == '__main__':
+	main()

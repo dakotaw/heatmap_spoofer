@@ -12,3 +12,5 @@ Probably better off as a gist but whatever yolo
 2. Clone the repo on the server that will be running the script.
 3. Run `sh ./setup.sh [github email]` on same server.
 4. Profit
+
+Security concerns (ssh keys, access controls, etc) are up to you.
