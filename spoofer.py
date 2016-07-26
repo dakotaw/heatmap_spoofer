@@ -10,7 +10,7 @@ def get_random_page():
 	"""Return a random wikipedia page as a wikipedia object. """
 	return wikipedia.page(wikipedia.random())
 
-def write_page(page, output_file='output.md'):
+def write_page(page, output_file='heatmap_spoofer/output.md'):
 	"""Write a wikipedia page's title and summary in markdown.
 	   Returns output file name."""
 	with open(output_file, 'w') as f:
