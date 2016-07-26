@@ -24,7 +24,9 @@ def write_page(page, output_file='heatmap_spoofer/output.md'):
 
 def main():
 
-	repo = Repo(os.path.dirname(os.path.abspath(__file__)))
+	path = os.path.dirname(os.path.abspath(__file__))
+	print path
+	repo = Repo(path)
 
 	# Choose how many commits for the day.
 	num_commits = int(randnorm(2.5, 1.25))
@@ -34,7 +36,7 @@ def main():
 
 		# Get a random page from Wikipedia and write it to a markdown file. 
 		random_page = get_random_page()
-		outfile = write_page(random_page)
+		outfile = write_page(random_page, os.path.join(path, 'output.md'))
 		
 		repo.git.add(outfile)
 		commit_message = 'Commiting article on {}.'.format(random_page.title.encode(
