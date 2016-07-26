@@ -1,3 +1,4 @@
-## A Funny Man
+## Romani people in France
 
-A Funny Man (Danish: Dirch) is a 2011 Danish drama film directed by Martin Zandvliet about the Danish actor and comedian Dirch Passer.
+French Romani people are generally known in spoken French as "Gitans", "Tsiganes" or "Manouches".
+
