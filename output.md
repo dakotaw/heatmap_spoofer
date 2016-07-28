@@ -1,6 +1,4 @@
-## Burnin' for You
+## Richard Reid
 
-"Burnin' for You" is a hit song by American hard rock band Blue Öyster Cult, from their Platinum Fire of Unknown Origin album, released in 1981.
-It hit #1 on the Billboard Top Tracks chart, and the single spent three weeks in the Top 40 on the Billboard Hot 100 chart. It was aided by a popular early MTV music video. The song, like BOC's other hit songs "Godzilla" and "(Don't Fear) The Reaper", was sung by guitarist Buck Dharma, who also co-wrote the song.
-The song was on the 2001 Clear Channel memorandum list of deemed "lyrically questionable" songs after 9/11.
-
+Richard Colvin Reid (born 12 August 1973), also known as the Shoe Bomber, is a British man who attempted to detonate explosives packed into the shoes he was wearing, while on American Airlines Flight 63 from Paris to Miami. Born to a father who was a career criminal, Reid converted to Islam as a young man in prison after years as a petty criminal. Later he became radicalised and went to Pakistan and Afghanistan, where he trained and became a member of al-Qaeda.
+On 22 December 2001, he boarded American Airlines Flight 63 between Paris and Miami, wearing shoes packed with explosives, which he unsuccessfully tried to detonate. Passengers subdued him on the plane, which landed at Logan International Airport in Boston, Massachusetts, the closest US airport. He was subsequently arrested and indicted. In 2002, Reid pleaded guilty in U.S. federal court to eight criminal counts of terrorism, based on his attempt to destroy a commercial aircraft in flight. He was sentenced to 3 life terms plus 110 years in prison without parole and is held in a super maximum security prison in the United States.
