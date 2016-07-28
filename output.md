@@ -1,8 +1,3 @@
-## Schoepfiaceae
+## Ralph J. Marra Jr.
 
-Schoepfiaceae is a family of flowering plants recognized in the APG III system of 2009. The family has previously only been recognized by few taxonomists; the plants in question usually being assigned to family Olacaceae and Santalaceae.
-The genus Schoepfia is according to molecular studies more closely related to the families Misodendraceae and Loranthaceae, and to uphold the criteria of monophyly it must be excluded from Olacaceae. Further investigations have also shown that the South American genera Arjona and Quinchamalium (previously in the family Santalaceae) are part of this family. Thus the family contains three genera comprising a total of 58 known species.
-Genera:
-Arjona Cavanilles (8 species) - temperate South America
-Quinchamalium Molina (25 species) - temperate South America
-Schoepfia Schreber (25 species) - temperate and tropical East Asia, tropical America
+Ralph J. Marra Jr. (born c. 1953) is an American lawyer who served as the Acting United States Attorney for the District of New Jersey. He held this position from the resignation of Chris Christie in December 2008 until the appointment of Paul J. Fishman in October 2009. In January 2010, after Christie became Governor of New Jersey, Marra was appointed to a top legal position in the New Jersey Sports and Exposition Authority.
