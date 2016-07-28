@@ -8,28 +8,32 @@ import os
 
 def get_random_page():
 	"""Return a random wikipedia page as a wikipedia object. """
-	return wikipedia.page(wikipedia.random())
+	ambig_error = True
+	while ambig_error:
+		ambig_error = False
+		try:
+			page = wikipedia.page(wikipedia.random())
+		except wikipedia.exceptions.DisambiguationError:
+			ambig_error = True
+
+	return page
 
 def write_page(page, output_file='heatmap_spoofer/output.md'):
 	"""Write a wikipedia page's title and summary in markdown.
 	   Returns output file name."""
 	with open(output_file, 'w') as f:
 		f.write('## {}\n\n'.format(page.title.encode('utf-8')))
-		try:
-			f.write(page.summary.encode('utf-8'))
-		except wikipedia.exceptions.DisambiguationError:
-			f.write('Disambiguation page, cannot summarize.')
-
+		f.write(page.summary.encode('utf-8'))
+		
 	return output_file
 
 def main():
 
 	path = os.path.dirname(os.path.abspath(__file__))
-	print path
 	repo = Repo(path)
 
 	# Choose how many commits for the day.
-	num_commits = int(randnorm(2.5, 1.25))
+	num_commits = int(randnorm(3, 1.5))
 	print 'Running {} commits.'.format(num_commits)
 
 	while num_commits > 0:
