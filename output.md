@@ -1,5 +1,6 @@
-## The Boat Race of the North
+## Ray Jansen
 
-The Boat Race of the North is an annual rowing event between the boat clubs of Durham and Newcastle universities in England. The event is staged on the River Tyne in Newcastle.
-The inaugural event took place on 18 May 1997. Durham has won eight of the twelve competitions. In 2009 Newcastle took the overall title for the first time and in 2010 the event was a draw. The event was sponsored for a number of years until 2010 by Northumbrian Water, and hence was known as the Northumbrian Water University Boat Race for this period. No races took place over the period 2011 – 2014, but the race resumed in 2015. Since 2015 the race had been sponsored by the NE1 business development company.
-
+Raymond William Jansen (born January 16, 1889 – March 19, 1934), was an American professional baseball player who played third base in the Major Leagues in 1910 for the St. Louis Browns.
+He was born and died in St. Louis, Missouri.
+Ray Jansen had perhaps a unique one-game career in Major League Baseball. On September 30, 1910, with only eight games remaining in the regular season, the St. Louis Browns were 55 games out of first place. They called on Jansen to play third base. The 21-year-old local boy had never played a professional game in his life. He came to bat 5 times, and got four singles, and never played again in the majors. In the field he was not so impressive, making 3 errors on 10 total chances. The Browns lost the game to the Chicago White Sox, 9–1. Jansens' 4 for 5 is still the record for the most hits in a one-game Major League Baseball career.
+Jansen did not play professionally in 1911, but he signed a minor league contract in 1913 and played minor league ball for 5 years, but never again batted over .300 for a season. His major league lifetime batting average remains at .800, but his fielding average was a less impressive .700.
