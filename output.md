@@ -1,4 +1,3 @@
-## Chena Hot Springs, Alaska
+## Viktor Kovalenko (ice dancer)
 
-Chena Hot Springs is a hot spring, resort, and unincorporated community in the Fairbanks North Star Borough, Alaska, United States, 56.5 miles northeast of Fairbanks near the Chena River State Recreation Area. The resort makes use of the first low-temperature binary geothermal power plant built in Alaska, and is working on several alternative energy projects, including production and use of hydrogen and vegetable oil for fuel. The resort is conducting collaborative experiments in greenhouse production of vegetables with the University of Alaska Fairbanks Agricultural and Forestry Experiment Station.
-
+Viktor Kovalenko (Russian: Виктор Коваленко; born 6 December 1991) is an Uzbekistani ice dancer who competes with Elizaveta Tretiakova. With former partner Anna Nagornyuk, he placed 10th at the 2013 World Junior Championships.
