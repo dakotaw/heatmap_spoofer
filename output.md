@@ -1,3 +1,4 @@
-## 1909 Clemson Tigers football team
+## Chena Hot Springs, Alaska
 
-The 1909 Clemson Tigers football team represented the Clemson Tigers of Clemson Agricultural College during the 1909 college football season. Under first year head coach Bob Williams, the team posted a 6–3 record. C. M. Robbs was the captain.
+Chena Hot Springs is a hot spring, resort, and unincorporated community in the Fairbanks North Star Borough, Alaska, United States, 56.5 miles northeast of Fairbanks near the Chena River State Recreation Area. The resort makes use of the first low-temperature binary geothermal power plant built in Alaska, and is working on several alternative energy projects, including production and use of hydrogen and vegetable oil for fuel. The resort is conducting collaborative experiments in greenhouse production of vegetables with the University of Alaska Fairbanks Agricultural and Forestry Experiment Station.
+
