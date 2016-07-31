@@ -1,4 +1,3 @@
-## Ministry of Economy (Romania)
+## Goidō Station
 
-The Ministry of Economy of Romania (Romanian: Ministerul Economiei) is one of the ministries of the Government of Romania.
-The minister's seat is currently held by Vice Premier Costin Borc under Prime Minister Dacian Ciolos.
+Goido Station (五位堂駅, Goidō-eki) is a railway station on the Kintetsu Osaka Line in Kashiba, Nara, Japan, and is the central station in the eastern area of the city.
