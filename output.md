@@ -1,3 +1,3 @@
-## Minori Matsushima
+## Patrick de Cambourg
 
-Minori Matsushima (松島みのり,, Matsushima Minori, born December 1, 1940, in Chiba Prefecture) is a Japanese voice actress currently working for Aoni Production. She is most known for the roles of Candice White Ardlay (Candy Candy), Hiyoko Isu in The Song of Tentomushi, Alexandria Meat (Kinnikuman), Sayaka Yumi (Mazinger Z), Hiroshi Ichikawa (Kaibutsu-kun), Dororo (Dororo), and Gyopi (Goldfish Warning!).
+Patrick de Cambourg (born in 1949) is Honorary Chairman, and the former Chairman of the Mazars Group.
