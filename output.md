@@ -1,6 +1,4 @@
-## Kamakshyanagar (Odisha Vidhan Sabha constituency)
+## Vigerslev train crash
 
-Kamakshyanagar (Sl. No.: 57) is a Vidhan Sabha constituency of Dhenkanal district, Odisha.
-Area of this constituency include Kamakshyanagar, Bhuban, 15 GPs (Badasuanlo, Jagannathpur, Bhairapur, Baruan(K), Baunspal, Kanapura, Baisinga, Baligorad, Mahulapal, Kadua, Rainarasinghpur, Sogar, Budhibilli, Bankual and Kotagara) of Kamakshyanagar block and 7 GPs (Barada, Gengutia, Sankulei, Tarva, Chaulia, Sogarpasi and Bansingh) of Dhenkanal block, and Bhuban block. 
-In 2009 election, Biju Janata Dal candidate Prafulla Kumar Mallik defeated Indian National Congress candidate Satrughan Jena by a margin of 20,594 votes.d to oppose Bush. The album proceeds were used to support a 2004 concert tour and an associated voter registration drive, emphasizing the swing states. The effort did not achieve its goal, as George W. Bush went on to win the election. The albums have been issued by the Fat Wreck Chords label, which focuses on skate and pop punk artists, so most of the songs are by similar themed bands. Both a CD and a DVD were included, the latter containing documentaries critical of Bush, music videos, and comedy.
-The effort inspired Australian punk bands to start Rock Against Howard.
+On 1 November 1919, an express train collided at speed with a stopped train near Vigerslev, Denmark, due to a dispatcher error. 40 people were killed and about 60 injured.
+
