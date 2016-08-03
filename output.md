@@ -1,3 +1,5 @@
-## Petrophila schwarzalis
+## Rock Against Bush
 
-Petrophila schwarzalis is a moth in the Crambidae family. It was described by Schaus in 1924. It is found in Guatemala.
+Rock Against Bush was a project mobilizing punk and alternative musicians against the 2004 U.S. Presidential re-election campaign of George W. Bush. At its core was the idea of using music to create a vibe of anti-war and pro-peace sentiment, similar to counterculture music movements of the 1960s and 1970s, such as Woodstock.
+The effort was initiated by Fat Mike (Michael Burkett) of the band NOFX, inspired by the Rock Against Reagan campaign of the early 1980s. It included live concerts, a series of compilation albums, and is associated with the Punkvoter website. Its goal was to encourage people, especially punk fans, to register to vote and to oppose Bush. The album proceeds were used to support a 2004 concert tour and an associated voter registration drive, emphasizing the swing states. The effort did not achieve its goal, as George W. Bush went on to win the election. The albums have been issued by the Fat Wreck Chords label, which focuses on skate and pop punk artists, so most of the songs are by similar themed bands. Both a CD and a DVD were included, the latter containing documentaries critical of Bush, music videos, and comedy.
+The effort inspired Australian punk bands to start Rock Against Howard.
