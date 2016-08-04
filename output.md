@@ -1,3 +1,6 @@
-## 2010 World Weightlifting Championships – Women's 69 kg
+## Cycling in Melbourne
 
-The women's competition in the light-heavyweight (– 69 kg) division was held on 21 and 22 September 2010.
+Cycling in Melbourne, Victoria is common for recreation, commuting and sport. The city has an extensive network of off-road bicycle paths, as well as designated bicycle lanes on many streets. There is an active cycling culture enhanced by a relatively flat topography, and a generally mild climate.
+Cycling in Melbourne was a very popular form of transport at the turn of the 19th century, however mass car-ownership saw a dramatic decline in cycling during the 20th century. The introduction of helmet legislation in the early 1990s also had a significant negative effect on its popularity. In the 21st century, cycling for health, fitness, and as a non-polluting alternative to the automobile has begun to increase in popularity once again, though cycling's transport modal share still accounts for only around 2% of all trips throughout the metropolitan area.
+Victorian government policy generally favours bicycle-friendly projects, however in 2008 a new regulation was introduced banning the carriage of bicycles on suburban trains during peak periods. This regulation was rescinded several months later after an outcry from bicycle users.
+There has been some recovery in the Central Business District of the City of Melbourne (population appx 70K) where figures put cycling at 8% of all peak-hour (7am-10am) commuter traffic. Planning for improvements to CBD bicycles routes and other major arterial routes is underway. The projects, including a bicycle hire system, similar to Vélib' in Paris, commenced in June 2010.
