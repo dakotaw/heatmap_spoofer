@@ -1,3 +1,3 @@
-## Murphy's War (novel)
+## List of Rensselaer Polytechnic Institute people
 
-Murphy's War is the fourth novel in Murphy series by Gary Paulsen. The story is about Murphy who moves to Fletcher, Wyoming after his wife dies and while trying to work as a cowhand he is beaten by a mob. It was published on December 1, 1990 by Pocket Books.
+This is a list of people associated with Rensselaer Polytechnic Institute, including Presidents, Institute leaders, Trustees, Alumni, Professors and Researchers. For a list of the highest elected student leaders at RPI see List of RPI Grand Marshals.
