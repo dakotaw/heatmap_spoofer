@@ -1,3 +1,5 @@
-## List of Rensselaer Polytechnic Institute people
+## Üçüncü
 
-This is a list of people associated with Rensselaer Polytechnic Institute, including Presidents, Institute leaders, Trustees, Alumni, Professors and Researchers. For a list of the highest elected student leaders at RPI see List of RPI Grand Marshals.
+Üçüncü is a Turkish surname. Notable people with the surname include:
+Bülent Üçüncü, Turkish former footballer
+Hasan Üçüncü, Turkish footballer
