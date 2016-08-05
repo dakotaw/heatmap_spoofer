@@ -1,5 +1,3 @@
-## Üçüncü
+## Robin Wright (rugby player)
 
-Üçüncü is a Turkish surname. Notable people with the surname include:
-Bülent Üçüncü, Turkish former footballer
-Hasan Üçüncü, Turkish footballer
+Robert Aikin 'Robin' Wright (died 1955) was an Irish rugby international. He won one cap against Scotland in 1912.
