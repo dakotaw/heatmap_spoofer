@@ -1,3 +1,4 @@
-## Robin Wright (rugby player)
+## M. Emmet Walsh
 
-Robert Aikin 'Robin' Wright (died 1955) was an Irish rugby international. He won one cap against Scotland in 1912.
+Michael "M." Emmet Walsh (born March 22, 1935) is an American actor who has appeared in over 200 films and television series.
+
