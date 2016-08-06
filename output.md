@@ -1,4 +1,3 @@
-## M. Emmet Walsh
+## Francine Caron
 
-Michael "M." Emmet Walsh (born March 22, 1935) is an American actor who has appeared in over 200 films and television series.
-
+Francine Caron (born 18 September 1945 in Batz-sur-Mer) is a French writer and poet.
