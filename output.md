@@ -1,5 +1,5 @@
-## William Henry Draper (congressman)
+## Guo Wei
 
-William Henry Draper (June 24, 1841 – December 7, 1921) was a Republican member of the United States House of Representatives from New York.y referred to as a defective die. Generally, and depending upon the magnitude of the defect, coins that are produced from these dies are considered error coins. Also, the term encompasses a wide variety of design errors that were engraved into the die originally and were slipped into circulation before the incorrect design was discovered.ince then it has been a part of Inderøy.
-Framverran is the location of Vestvik Church. Since 1993, Framverran School has been educating all of the 1st to 4th-grade pupils for the whole Mosvik area. Petter Northug is from Framverran.
+Guo Wei (郭威) (10 September 904 – 22 February 954), also known by his temple name Taizu (太祖), was the founding emperor of imperial China's short-lived Later Zhou during the Five Dynasties and Ten Kingdoms period, reigning from 951 until his death.
+Nicknamed "Sparrow Guo" (郭雀兒) for a sparrow-shaped tattoo on his neck, he rose to high position in the Later Han as an assistant military commissioner. He founded the Later Zhou in 951.
 
