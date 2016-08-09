@@ -1,4 +1,6 @@
-## Dionysius Ó Mórdha
+## SynCardia Systems
 
-Dionysius Ó Mórdha, Bishop of Clonfert, died 1534.
-
+SynCardia Systems, Inc, is a Tucson, Arizona based company formed in 2001 to commercialize their Total Artificial Heart Device.
+In 2004, the FDA approved SynCardia’s “CardioWest Total Artificial Heart” device, the first temporary heart for patients at risk of dying within 30 days. With the early generation of Artificial Hearts, patients had to be tethered to large 418 lb. devices known as “Big Blue” which severely restricted patient freedom. In 2007, SynCardia began to develop a portable version of “Big Blue” which would allow patients to leave the hospital setting with their artificial heart & lead much more normal lives. By 2010, patients in clinical trials were able to leave the hospital with this new device. Known as the “Freedom Driver”, the fanny-pack size appliance blows air through tubes connected to their artificial heart. In 2012, the “Freedom Driver” won a Medical Design Excellence Award.
+In 2008, Medicare began to cover the cost of SynCardia’s Artificial Heart.
+In 2012, SynCardia applied FDA approval for allowing its “Total Artificial Heart” device to be implanted into patients not eligible for human heart transplants.
