@@ -1,4 +1,3 @@
-## Bob Campbell (Australian footballer)
+## Anna Palaiologina (daughter of Andronikos Angelos Palaiologos)
 
-Bob Campbell (6 September 1868 – 1 June 1946) was an Australian rules footballer who played with St Kilda in the Victorian Football League (VFL).
-
+Anna Palaiologina (Greek: Ἅννα Παλαιολογίνα) was a queen-consort (basilissa) of the Despotate of Epirus as wife of John II Orsini and regent for her son Nikephoros II Orsini. She later married the Lord of Valona, John Komnenos Asen.
