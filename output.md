@@ -1,3 +1,4 @@
-## Ouézy
+## Bob Campbell (Australian footballer)
 
-Ouézy is a commune in the Calvados department in the Normandy region in northwestern France.
+Bob Campbell (6 September 1868 – 1 June 1946) was an Australian rules footballer who played with St Kilda in the Victorian Football League (VFL).
+
