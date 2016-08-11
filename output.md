@@ -1,3 +1,3 @@
-## Phillips Cycles
+## Ouézy
 
-Phillips Cycles Ltd. was a British bicycle manufacturer based in Smethwick near Birmingham, England. Its history began early in the 20th century and ended in the 1980s by which time it had become part of Raleigh Industries, itself a part of the Tube Investments group. For a number of years, the company was the second-largest bicycle producer in Britain, after Raleigh. The company motto, which was carried on all its badges, was "Renowned the World Over". The "Phillips" brand is still used around the world, especially in China and the Far East, having been licensed by Raleigh.
+Ouézy is a commune in the Calvados department in the Normandy region in northwestern France.
