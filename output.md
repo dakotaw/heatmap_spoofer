@@ -1,3 +1,3 @@
-## Glenn W. Smith
+## Arinia simplex
 
-Glenn W. Smith (born September 30, 1953 in Houston, Texas) is an author, activist and political consultant.
+Arinia simplex is a species of small land snails with an operculum, terrestrial gastropod mollusks in the family Diplommatinidae. This species of gastropod in the Diplommatinidae family. It is endemic to Malaysia. Its natural habitat is subtropical or tropical moist lowland forests. It is threatened by habitat loss.
