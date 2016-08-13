@@ -1,4 +1,3 @@
-## Pat Zachry
+## Filippo Tommaso Marinetti
 
-Patrick Paul Zachry (born April 24, 1952) is a former professional baseball pitcher. He pitched in Major League Baseball from 1976 to 1985, and is likely best remembered as one of the players the Cincinnati Reds sent to the New York Mets in the infamous "Midnight Massacre".
-
+Filippo Tommaso Emilio Marinetti (Italian: [fiˈlippo tomˈmaːzo mariˈnetti]; 22 December 1876 – 2 December 1944) was an Italian poet, editor, art theorist, and founder of the Futurist movement. He was associated with the utopian and Symbolists artistic and literary community Abbaye de Créteil between 1907 and 1908. Marinetti is best known as the author of the first Futurist Manifesto, which was written and published in 1909.
