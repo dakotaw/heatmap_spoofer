@@ -1,3 +1,4 @@
-## José Carlos Fernández (Bolivian footballer)
+## 1937 Men's British Open Squash Championship
 
-José Carlos Fernández González (Spanish pronunciation: [xoˈse ˈkarlos ferˈnandeθ], born 24 January 1971) is a Bolivian retired football goalkeeper who is currently active as director of football of Bolivian club Bolívar.
+The 1937 Open Championship featured the defending open champion F. D. Amr Bey of Egypt being challenged by Jim Dear the professional champion. The first leg was held at Dear's club the Royal Automobile Club on 22 November. Bey won the first leg three games to two. The second leg took place at Bey's home Bath Club on 29 November. Bey won his fifth consecutive Open Championship title by clinching the second leg three games to one in a fifty-minute match.
+After securing a sixth Amateur Championship in December 1937 the Egyptian retired from international competitions the following March and received a national banquet attended by King Farouk in his honour on 25 March in Cairo.
