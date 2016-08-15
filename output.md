@@ -1,4 +1,5 @@
-## Robert Brough Smyth
+## Jaw-thrust maneuver
 
-Robert Brough Smyth (1830 – 8 October 1899) was an Australian geologist, author and social commentator.Egypt being challenged by Jim Dear the professional champion. The first leg was held at Dear's club the Royal Automobile Club on 22 November. Bey won the first leg three games to two. The second leg took place at Bey's home Bath Club on 29 November. Bey won his fifth consecutive Open Championship title by clinching the second leg three games to one in a fifty-minute match.
-After securing a sixth Amateur Championship in December 1937 the Egyptian retired from international competitions the following March and received a national banquet attended by King Farouk in his honour on 25 March in Cairo.
+The jaw-thrust maneuver is a procedure used to prevent the tongue obstructing the upper airways. The jaw thrust maneuver is a technique used on patients with a suspected spinal injury and is used on a supine patient.
+The maneuver is performed by placing the index and middle fingers to physically push the posterior aspects of the mandible upwards while their thumbs push down on the chin to open the mouth. When the mandible is displaced forward, it pulls the tongue forward and prevents it from obstructing the entrance to the trachea.
+The International Liaison Committee on Resuscitation no longer advocates use of the jaw thrust by lay rescuers, even for spinal-injured victims, although health care professionals still maintain the technique for specific applications. Instead, lay rescuers are advised to use the same head-tilt for all victims. If the patient is in danger of pulmonary aspiration, he or she should be placed in the recovery position, or advance airway management should be used.
