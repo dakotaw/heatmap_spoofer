@@ -1,3 +1,3 @@
-## Pasco Intermodal Train Station
+## Frances Tressady Stakes
 
-Pasco Intermodal Train Station is a train station on the Amtrak's Empire Builder line in Pasco, Washington, USA. The station stop serves the Tri-Cities of Richland, Pasco, and Kennewick. The station and parking are owned by the City of Pasco. The track and platforms are owned by BNSF Railway. Greyhound Lines provides inter-city bus transport at the station. Pasco is also a change point for Amtrak engineers on the Empire Builder.
+The Frances Tressady Stakes is a Victoria Racing Club Group 3 Thoroughbred horse race held under set weight conditions with penalties, for fillies and mares aged three years old and older, over a distance of 1400 metres, held annually at Flemington Racecourse in Melbourne, Australia in March. Total Prize money is A$150,000.
