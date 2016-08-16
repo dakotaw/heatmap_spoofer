@@ -1,3 +1,3 @@
-## Frances Tressady Stakes
+## John Drane
 
-The Frances Tressady Stakes is a Victoria Racing Club Group 3 Thoroughbred horse race held under set weight conditions with penalties, for fillies and mares aged three years old and older, over a distance of 1400 metres, held annually at Flemington Racecourse in Melbourne, Australia in March. Total Prize money is A$150,000.
+John William Drane is a theologian who is probably best known for his two best-selling books on the Bible, Introducing the Old Testament and Introducing the New Testament (both published by Lion Hudson in the UK and Fortress Press in the US, and translated into more than sixty languages worldwide). He studied in the University of Aberdeen where he was a student of I. Howard Marshall, and he holds a PhD from the University of Manchester, where his mentor was F. F. Bruce. His doctoral research focused on Gnosticism in relation to early Christian thought and practice. This interest in esoteric spirituality later became a bridge between his study of the Bible and his concern for Christian mission, with particular reference to cultural change and the emergence of New Spirituality.
