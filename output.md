@@ -1,3 +1,4 @@
-## Zooperstars
+## S/2004 S 12
 
-Zooperstars is an informative and educational TV program from GMA Network. It began airing on February 28, 2010. The show features different animals. Also a part of GMA's 60th anniversary offering. It is hosted by Gelli de Belen, Julian Trono and Sabrina Man.
+S/2004 S 12 is a natural satellite of Saturn. Its discovery was announced by Scott S. Sheppard, David C. Jewitt, Jan Kleyna, and Brian G. Marsden on May 4, 2005 from observations taken between December 12, 2004 and March 9, 2005.
+S/2004 S 12 is about 5 kilometres in diameter, and orbits Saturn at an average distance of 19,906 Gm in 1048.541 days, at an inclination of 164° to the ecliptic (162° to Saturn's equator), in a retrograde direction and with an eccentricity of 0.396.
