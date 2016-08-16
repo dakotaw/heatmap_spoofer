@@ -1,4 +1,3 @@
-## S/2004 S 12
+## Pasco Intermodal Train Station
 
-S/2004 S 12 is a natural satellite of Saturn. Its discovery was announced by Scott S. Sheppard, David C. Jewitt, Jan Kleyna, and Brian G. Marsden on May 4, 2005 from observations taken between December 12, 2004 and March 9, 2005.
-S/2004 S 12 is about 5 kilometres in diameter, and orbits Saturn at an average distance of 19,906 Gm in 1048.541 days, at an inclination of 164° to the ecliptic (162° to Saturn's equator), in a retrograde direction and with an eccentricity of 0.396.
+Pasco Intermodal Train Station is a train station on the Amtrak's Empire Builder line in Pasco, Washington, USA. The station stop serves the Tri-Cities of Richland, Pasco, and Kennewick. The station and parking are owned by the City of Pasco. The track and platforms are owned by BNSF Railway. Greyhound Lines provides inter-city bus transport at the station. Pasco is also a change point for Amtrak engineers on the Empire Builder.
