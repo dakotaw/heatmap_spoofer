@@ -1,3 +1,5 @@
-## John Drane
+## His Wife's Mistakes
 
-John William Drane is a theologian who is probably best known for his two best-selling books on the Bible, Introducing the Old Testament and Introducing the New Testament (both published by Lion Hudson in the UK and Fortress Press in the US, and translated into more than sixty languages worldwide). He studied in the University of Aberdeen where he was a student of I. Howard Marshall, and he holds a PhD from the University of Manchester, where his mentor was F. F. Bruce. His doctoral research focused on Gnosticism in relation to early Christian thought and practice. This interest in esoteric spirituality later became a bridge between his study of the Bible and his concern for Christian mission, with particular reference to cultural change and the emergence of New Spirituality.
+His Wife's Mistakes is a 1916 short comedy film directed by and starring Fatty Arbuckle.
+
+epal. At the time of the 2011 Nepal census it had a population of 5014 people living in 1146 individual households.It lies northwest of Baidi. It lies on a steep mountain top overlooking a deep valley in which the Kali River passes. The village contains a health camp.
