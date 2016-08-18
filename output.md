@@ -1,4 +1,4 @@
-## Bertrand des Bordes
+## Proviso Township, Cook County, Illinois
 
-Bertrand des Bordes (died 1311) was a medieval Roman Catholic Cardinal and bishop of the Diocese of Albi.
-Bordes was born in Gascony. He was made a Canon of the Cathedral Chapter of Lectoure in 1305. He was elected bishop of Albi in 1308 and held that position until he was made a Cardinal in 1310.
+Proviso Township is one of thirty townships in Cook County, Illinois, USA. As of the 2010 census, its population was 151,704. It was organized in 1850 and originally named "Taylor", but shortly afterward its name was changed to make reference to the Wilmot Proviso, a contemporary piece of legislation intended to stop the spread of slavery.
+The Proviso Township government office is located at 4565 W. Harrison Street, Hillside, IL 60162.
