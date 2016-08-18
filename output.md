@@ -1,3 +1,4 @@
-## Bolo palma
+## Bertrand des Bordes
 
-Bolo palma is a variant of bowls originated and played throughout the region of Cantabria, north of Spain. The basic aim of the game is the knock over as many pins as possible with a wooden ball. Records of the game go back as far as the 16th century. The game was also spread to neighbouring areas of eastern Asturias and northern Palencia. Cantabrian emigration also took the practice of the sport elsewhere in Spain to places such as the Basque Country, Madrid, Catalonia and Andalusia and even to other countries like Mexico, Argentina, Chile and Venezuela.
+Bertrand des Bordes (died 1311) was a medieval Roman Catholic Cardinal and bishop of the Diocese of Albi.
+Bordes was born in Gascony. He was made a Canon of the Cathedral Chapter of Lectoure in 1305. He was elected bishop of Albi in 1308 and held that position until he was made a Cardinal in 1310.
