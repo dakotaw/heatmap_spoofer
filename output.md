@@ -1,4 +1,3 @@
-## Castle of Montegiove
+## Bolo palma
 
-The Castle of Montegiove was established in the 13th century in Umbria, Italy. It lies at 627 meters above sea-level, on the border between the old city states of Orvieto and Perugia. The castle continues to operate privately as a family farm and tourist site.
-
+Bolo palma is a variant of bowls originated and played throughout the region of Cantabria, north of Spain. The basic aim of the game is the knock over as many pins as possible with a wooden ball. Records of the game go back as far as the 16th century. The game was also spread to neighbouring areas of eastern Asturias and northern Palencia. Cantabrian emigration also took the practice of the sport elsewhere in Spain to places such as the Basque Country, Madrid, Catalonia and Andalusia and even to other countries like Mexico, Argentina, Chile and Venezuela.
