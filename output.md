@@ -1,4 +1,3 @@
-## Proviso Township, Cook County, Illinois
+## Duarte Barbosa
 
-Proviso Township is one of thirty townships in Cook County, Illinois, USA. As of the 2010 census, its population was 151,704. It was organized in 1850 and originally named "Taylor", but shortly afterward its name was changed to make reference to the Wilmot Proviso, a contemporary piece of legislation intended to stop the spread of slavery.
-The Proviso Township government office is located at 4565 W. Harrison Street, Hillside, IL 60162.
+Duarte Barbosa (c. 1480, Lisbon, Portugal – 1 May 1521, Philippines) was a Portuguese writer and Portuguese India officer between 1500 and 1516–1517, with the post of scrivener in Cannanore factory and sometimes interpreter of the local language (Malayalam). His Book of Duarte Barbosa (Livro de Duarte Barbosa) is one of the earliest examples of Portuguese travel literature, written c. 1516, shortly after the arrival in the Indian Ocean. In 1519 Duarte Barbosa embarked on the first expedition to circumnavigate the world, led by his brother-in-law Ferdinand Magellan. He died in 1521 at the feast of rajah Humabon on Cebu Island in the Philippines.
