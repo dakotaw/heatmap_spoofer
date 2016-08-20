@@ -1,5 +1,3 @@
-## (My My) Baby's Gonna Cry
+## Dutch Island (Rhode Island)
 
-"(My My) Baby's Gonna Cry" is a song recorded by pop music duo Eurythmics. It was written by group members Annie Lennox and David A. Stewart and produced by Stewart. The song appears on the duo's album We Too Are One.
-"(My My) Baby's Gonna Cry" marked two firsts for Eurythmics: this was the only single from the band which was released in the United States but not the UK and this is also the only single released by the duo to feature co-lead vocals by Lennox and Stewart. Issued as the third American single from We Too Are One, the single failed to chart on the Billboard Hot 100. It did, however, chart in Canada, peaking at #58.
-Lyrically Lennox sings the part of a woman asking her partner why he was "untrue" and whether he feels sorry for cheating, while he (Stewart) responds that the relationship makes him "feel sad", and he is "never coming back". The song could be interpreted as the foreshadowing of Eurythmics near decade-long hiatus, as the duo's professional relationship was strained at the time of We Too Are One's release.
+Dutch Island is an island lying west of Conanicut Island at an entrance to Narragansett Bay in Rhode Island, United States. The island is a part of the town of Jamestown, Rhode Island, and has a land area of 0.4156 km² (102.7 acres). It was uninhabited as of the 2000 census. The island was fortified from the American Civil War through World War II, and was known as Fort Greble 1898-1947.
