@@ -1,3 +1,4 @@
-## Dutch Island (Rhode Island)
+## North by Northwestern
 
-Dutch Island is an island lying west of Conanicut Island at an entrance to Narragansett Bay in Rhode Island, United States. The island is a part of the town of Jamestown, Rhode Island, and has a land area of 0.4156 km² (102.7 acres). It was uninhabited as of the 2000 census. The island was fortified from the American Civil War through World War II, and was known as Fort Greble 1898-1947.
+North by Northwestern is a daily online news magazine at Northwestern University, started in September 2006 by students at the Medill School of Journalism. It is noted for its multimedia coverage of campus events. In 2008 the site was recognized by the Society of Professional Journalists with eight regional Mark of Excellence Awards, one more than in 2007. It also won a national Mark of Excellence finalist for best independent Web site, and was a winner of the 2008 National Pacemaker Awards, considered the "Pulitzer Prize" of college journalism. The Society of Professional Journalists awarded NBN the national Mark of Excellence award for best independent online student publication in 2010.
+In the spring of 2008, the site launched a quarterly print magazine of the same name.
