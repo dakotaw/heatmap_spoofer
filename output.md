@@ -1,4 +1,3 @@
-## North by Northwestern
+## DipTrace
 
-North by Northwestern is a daily online news magazine at Northwestern University, started in September 2006 by students at the Medill School of Journalism. It is noted for its multimedia coverage of campus events. In 2008 the site was recognized by the Society of Professional Journalists with eight regional Mark of Excellence Awards, one more than in 2007. It also won a national Mark of Excellence finalist for best independent Web site, and was a winner of the 2008 National Pacemaker Awards, considered the "Pulitzer Prize" of college journalism. The Society of Professional Journalists awarded NBN the national Mark of Excellence award for best independent online student publication in 2010.
-In the spring of 2008, the site launched a quarterly print magazine of the same name.
+DipTrace is EDA/CAD software for creating schematic diagrams and printed circuit boards. The developers provide multi-lingual interface and tutorials (currently available in English and 21 other languages). DipTrace has 4 modules: Schematic Capture Editor, PCB Layout Editor with built-in shape-based autorouter and 3D Preview & Export, Component Editor, and Pattern Editor.
