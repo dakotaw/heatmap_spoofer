@@ -1,4 +1,3 @@
-## McLennan Reservation
+## Big Beautiful Woman
 
-McLennan Reservation is a nature reserve located in Otis and Tyringham, Massachusetts. The property is owned by The Trustees of Reservations.
-
+"Big Beautiful Woman" (commonly abbreviated as BBW) is a euphemism for an overweight woman and is frequently used in the context of fat fetishism. The terms "Big Beautiful Women" and "BBW" were coined by Carole Shaw in 1979, when she launched BBW Magazine, a fashion and lifestyle magazine for "plus-size" women.
