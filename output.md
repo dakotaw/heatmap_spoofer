@@ -1,4 +1,4 @@
-## DECO Online
+## Strontium aluminate
 
-DECO Online to Play/Free to Download MMORPG developed by Rocksoft and published in English by JOYMAX Interactive, and in Indonesian by PlayOn Interactive. DECO has no monthly subscription fees and instead the game features a Cash Item Shop. Cash Items aren't required to play DECO Online. However, they do offer an improved gaming experience.
-DECO Online has two nations, Millena and Rain. The Millena utilize weapons while the Rain prefer using magic. Deco Online contains a combo system, utilizing the c, x, and z buttons (similar to the MMORPG Seal Online)in order to alleviate the monotony associated with the usual point and click style of many other MMORPGs.
+Strontium aluminate (SRA, SrAl, SrAl2O4) is a solid odorless, nonflammable, pale yellow, monoclinic crystalline powder, heavier than water. It is chemically and biologically inert. When activated with a suitable dopant (e.g. europium, then it is labeled SrAl2O4:Eu), it acts as a photoluminescent phosphor with long persistence of phosphorescence.
+There are also other strontium aluminates, e.g. SrAl4O7 (monoclinic), Sr3Al2O6 (cubic), SrAl12O19 (hexagonal), Sr4Al14O25 (orthorhombic).
