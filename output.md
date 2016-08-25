@@ -1,6 +1,4 @@
-## Postprint
+## 1957
 
-In academic publishing, a postprint is a digital draft of a research journal article after it has been peer reviewed. A digital draft before peer review is called a preprint. Jointly, postprints and preprints are called eprints.
-Expressed in the CrossRef terminology, any draft starting from the author's original version but prior to the accepted version is a preprint, whereas any draft from the accepted version onward, including the version of record or definitive work, is a postprint.
-Since the advent of the Open Archives Initiative, preprints and postprints have been deposited in institutional repositories, which are interoperable because they are compliant with the Open Archives Initiative Protocol for Metadata Harvesting.
-Eprints are at the heart of the open access initiative to make research freely accessible online. Eprints were first deposited or self-archived in arbitrary websites and then harvested by virtual archives such as CiteSeer (and, more recently, Google Scholar), or they were deposited in central disciplinary archives such as Arxiv or PubMed Central.
+1957 (MCMLVII) was a common year starting on Tuesday (dominical letter F) of the Gregorian calendar, the 1957th year of the Common Era (CE) and Anno Domini (AD) designations, the 957th year of the 2nd millennium, the 57th year of the 20th century, and the 8th year of the 1950s decade.
+
