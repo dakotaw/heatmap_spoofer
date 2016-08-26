@@ -1,4 +1,3 @@
-## 1957
+## Comitatenses
 
-1957 (MCMLVII) was a common year starting on Tuesday (dominical letter F) of the Gregorian calendar, the 1957th year of the Common Era (CE) and Anno Domini (AD) designations, the 957th year of the 2nd millennium, the 57th year of the 20th century, and the 8th year of the 1950s decade.
-
+The comitatenses and later the palatini were the units of the field armies of the late Roman Empire.
