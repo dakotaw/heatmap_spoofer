@@ -1,3 +1,3 @@
-## Homeworld: Cataclysm
+## Zahr Shir
 
-Homeworld: Cataclysm was originally developed in September 2000 as an expansion of Homeworld, but was released as a stand-alone game. It was published by Sierra Entertainment, as was the original, but it was developed by Barking Dog Studios.
+Zahr Shir (Persian: ظهرشير‎‎, also Romanized as Z̧ahr Shīr and Z̧ahr-e Shīr) is a village in Alaviyeh Rural District, Kordian District, Jahrom County, Fars Province, Iran. At the 2006 census, its existence was noted, but its population was not reported.
