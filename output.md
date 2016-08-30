@@ -1,4 +1,7 @@
-## Socket 478
+## Çetenli, Doğubayazıt
 
-Socket 478 (also known as mPGA478, mPGA478B) is a 478-contact CPU socket used for Intel's Pentium 4 and Celeron series CPUs.
-Socket 478 was launched with the Northwood core to compete with AMD's 462-pin Socket A and their Athlon XP processors. Socket 478 was intended to be the replacement for Socket 423, a Willamette-based processor socket which was on the market for only a short time. Socket 478 was phased out with the launch of LGA 775.
+Çetenli, Doğubayazıt is a town in Dogubayazit district of central Agri Province eastern Turkey.
+The town population is 3000 and its postal ZIP code is 04400.
+The name of the village comes from the çeten plant, of which the village has a large number of fields. Located in Agri Province, the town is located 18km from the town of Dogubayazit, and is in the shadow of the biblical Mount Ararat. The climate is mountainous and cold to temperate.
+The village population has fluctuated greatly. In 2007 it was 3000 while in 2000, it was 1076 and in 1997, 1674. The village economy is based on agriculture and animal husbandry and has a school, medical center and a potable drinking water supply, but there is no sewerage nor post office.
+The village has asphalt roads connecting it, electricity and landline telephone.
