@@ -1,6 +1,5 @@
-## Science of Survival
+## Canoeing at the 2008 Summer Olympics – Women's K-4 500 metres
 
-Science of Survival is a book published in 1951 by L. Ron Hubbard, extending his earlier writings on Dianetics. Its original subtitle was "simplified, faster dianetic techniques",although more recent editions have the subtitle "Prediction of human behavior". It is one of the canonical texts of Scientology.
-The title of Science of Survival alludes to Science and Sanity, a highly popular work by Alfred Korzybski, the founder of general semantics. Hubbard acknowledged Korzybski's contributions in the book.
-It has remained perpetually in print over the years, and is currently published by Bridge Publications, Inc. However, elements in the text have changed over the years, with some modern editions no longer containing specific medical claims of Dianetics' ability to cure disease and to increase IQ.
-Science of Survival was the follow-up to Hubbard's best-selling Dianetics: The Modern Science of Mental Health. It expanded significantly on Dianetics, setting out what Hubbard called the "dynamics of behaviour" and provided descriptions of new techniques of Dianetics processing that Hubbard described as being faster and simpler than those that he had advanced previously. In the book, Hubbard introduced two concepts that were later to become key elements of Scientology: theta and the tone scale. He also endorsed the concept of past lives.
+The women's K-4 500 metres competition in canoeing at the 2008 Summer Olympics took place at the Shunyi Olympic Rowing-Canoeing Park in Beijing between August 18 and 22. The K-4 event is raced in four-person kayaks.
+Competition consists of three rounds: the heats, the semifinals, and the final. All boats compete in the heats. The top three finishers in each of the two heats advance directly to the final, while the remaining four finishers from both heats move on to the semifinal. The top three finishers in the semifinal join the heats winners in the final.
+Heats took place on August 18, semifinals on August 20, and the final on August 22.
