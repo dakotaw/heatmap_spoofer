@@ -1,5 +1,4 @@
-## Canoeing at the 2008 Summer Olympics – Women's K-4 500 metres
+## Rugulovasine
 
-The women's K-4 500 metres competition in canoeing at the 2008 Summer Olympics took place at the Shunyi Olympic Rowing-Canoeing Park in Beijing between August 18 and 22. The K-4 event is raced in four-person kayaks.
-Competition consists of three rounds: the heats, the semifinals, and the final. All boats compete in the heats. The top three finishers in each of the two heats advance directly to the final, while the remaining four finishers from both heats move on to the semifinal. The top three finishers in the semifinal join the heats winners in the final.
-Heats took place on August 18, semifinals on August 20, and the final on August 22.
+Rugulovasines are bio-active alkaloids made by Penicillium.s that seek to provide the same scalable performance of NoSQL systems for online transaction processing (OLTP) read-write workloads while still maintaining the ACID guarantees of a traditional database system.
+
