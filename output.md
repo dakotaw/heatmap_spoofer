@@ -1,3 +1,4 @@
-## Glenn Allen Jr.
+## Frankfurter Allee
 
-Glenn Allen Jr. (born September 24, 1970) is the co-owner of Allen-Hock Motorsports, an American Speed Association (ASA) team. He is a former auto racer, participating in both the ASA and the NASCAR Busch Series during his career, and earning the 1996 NBS Rookie of the Year award.
+The Frankfurter Allee is one of the oldest roads of Berlin, the capital city of Germany. It extends the Karl-Marx-Allee from Frankfurter Tor in the direction of the city of Frankfurt (Oder). It is part of Bundesstraße 1 and has a length of 3.6 kilometres (2.2 mi).
+Line U5 of the city's U-Bahn runs beneath the length of Frankfurter Allee. The U-Bahn stations of Frankfurter Tor, Samariterstraße, Frankfurter Allee, Magdalenenstraße and Lichtenberg are all under or adjacent to the street. Frankfurter Allee and Lichtenberg stations are also served by the city's S-Bahn.
