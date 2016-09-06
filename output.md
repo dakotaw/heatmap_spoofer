@@ -1,3 +1,5 @@
-## Shockman
+## Ararat rebellion
 
-Kaizou Choujin Shubibinman 2: Aratanaru Teki (改造町人シュビビンマン2 新たなる敵) is a 1991 platform game developed by Winds. It was released in the United States as Shockman in 1992 as the only game in the Kaizou Choujin Shubibinman series to be released outside Japan. The game would be re-released on the Wii Virtual Console worldwide throughout 2007.
+The Ararat rebellion, also known as the Ağrı rebellion, was an uprising amongst the Kurdish inhabitants of the province of Ağrı in eastern Turkey against the Turkish government that took place in 1930.
+The leader of the Kurdish guerrilla forces during this rebellion was Ihsan Nuri from the Kurdish Jibran tribe.
+
