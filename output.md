@@ -1,4 +1,3 @@
-## 85th Scripps National Spelling Bee
+## Shockman
 
-The 85th Scripps National Spelling Bee was held at the Gaylord National, in Oxon Hill, Maryland (also D.C) from May 27 to May 31, 2012, and was broadcast live on ESPN3. The championship finals occurred on May 31, 2012.
-
+Kaizou Choujin Shubibinman 2: Aratanaru Teki (改造町人シュビビンマン2 新たなる敵) is a 1991 platform game developed by Winds. It was released in the United States as Shockman in 1992 as the only game in the Kaizou Choujin Shubibinman series to be released outside Japan. The game would be re-released on the Wii Virtual Console worldwide throughout 2007.
