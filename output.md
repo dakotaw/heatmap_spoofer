@@ -1,8 +1,3 @@
-## Vanne (river)
+## Annapolis Group
 
-The Vanne is a river in France, right tributary of the Yonne. It is 59 km long, and its drainage basin area is 990 km2. It rises in the Aube department, in the village Fontvannes, west of Troyes. It flows into the river Yonne in Sens.
-The Vanne flows through the following departments and towns:
-Aube: Estissac
-Yonne: Villeneuve-l'Archevêque, Malay-le-Grand, Sens
-
-^ Sandre database
+The Annapolis Group is an American organization that describes itself as "a nonprofit alliance of the nation’s leading independent liberal arts colleges." It represents approximately 130 liberal arts colleges in the United States. These colleges work together to promote a greater understanding of the goals of a liberal arts education through their websites, as well as through independent research. Its current chair is Stephen D. Schutt, the president of Lake Forest College.
