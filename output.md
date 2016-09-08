@@ -1,5 +1,4 @@
-## Frank Williams (rugby)
+## Government Engineering College, Thrissur
 
-Frank Williams was a Welsh rugby union and professional rugby league footballer of the 1910s, playing club level rugby union (RU) for Swansea RFC, and playing representative level rugby league (RL) for Great Britain, and Wales, and at club level for Halifax, as a Wing, i.e. number 2 or 5.
-Williams won a cap for Wales while at Halifax in 1914.
-At the 1913–14 Northern Rugby Football Union season's conclusion, Williams was included in the squad was selected by the Union to represent it on the 1914 Great Britain Lions tour of Australia and New Zealand. He won caps for Great Britain while at Halifax in 1914 against Australia (2 matches).
+The Government Engineering College Thrissur is an engineering college situated in Thrissur city of Kerala, India. It is the second oldest engineering college established in Kerala and the first engineering college to be established after the formation of Kerala state. The college is affiliated to the University of Calicut.
+In 2009, LiveMint (online news portal) rated GECT among the Top 50 Government engineering colleges in India.  The college was awarded ISO 9001:2008 certification from the Indian Registry of Quality Systems in 2012. The college is ranked 149th in All India Rankings published by Edu-Rand in 2015, of which it is at the 70th position considering pure Govt Engg College criteria which includes IITs and NITs.  Considering the recent increase in number of NITs and IITs, this looks comparable to the Livemint rankings of 2009.
