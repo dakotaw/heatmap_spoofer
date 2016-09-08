@@ -1,3 +1,3 @@
-## Annapolis Group
+## Derek Deighton
 
-The Annapolis Group is an American organization that describes itself as "a nonprofit alliance of the nation’s leading independent liberal arts colleges." It represents approximately 130 liberal arts colleges in the United States. These colleges work together to promote a greater understanding of the goals of a liberal arts education through their websites, as well as through independent research. Its current chair is Stephen D. Schutt, the president of Lake Forest College.
+Major General Derek Christopher John Deighton AO, MBE (21 November 1930 – 16 April 1991) was a senior officer of the Australian Army. He was the brother of Brigadier John Deighton MC.
