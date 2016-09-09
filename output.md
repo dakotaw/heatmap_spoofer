@@ -1,4 +1,3 @@
-## Soanenga
+## Ahmadabad, Qaleh Ganj
 
-Soanenga is a town and commune (Malagasy: kaominina) in western Madagascar. It belongs to the district of Besalampy, which is a part of Melaky Region. The population of the commune was estimated to be approximately 9,000 in 2001 commune census.
-Soanenga has a riverine harbour. Only primary schooling is available. Farming and raising livestock provides employment for 48% and 30% of the working population. The most important crop is rice, while other important products are coconuts and seeds of catechu. Services provide employment for 2% of the population. Additionally fishing employs 20% of the population.
+Ahmadabad (Persian: احمداباد‎‎, also Romanized as Aḩmadābād) is a village in Qaleh Ganj Rural District, in the Central District of Qaleh Ganj County, Kerman Province, Iran. At the 2006 census, its population was 309, in 74 families.
