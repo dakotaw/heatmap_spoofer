@@ -1,3 +1,7 @@
-## Ahmadabad, Qaleh Ganj
+## 22d Intelligence Squadron
 
-Ahmadabad (Persian: احمداباد‎‎, also Romanized as Aḩmadābād) is a village in Qaleh Ganj Rural District, in the Central District of Qaleh Ganj County, Kerman Province, Iran. At the 2006 census, its population was 309, in 74 families.
+The 22d Intelligence Squadron (22 IS) is a non-flying squadron of the United States Air Force. It is assigned to the 707th Intelligence, Surveillance and Reconnaissance Group, Fort George G. Meade, Maryland.
+The 22 IS is one of the oldest units in the United States Air Force, its lineage and history consisting of two World War I Western Front combat squadrons.
+The 22d Aero Squadron was organized on 16 June 1917 at Kelly Field, Texas. A Pursuit (Fighter) squadron of the American Expeditionary Forces, it took part in the Somme Defensive; St. Mihiel offensive, and Meuse-Argonne offensive campaigns. The unit was demobilized after the war in 1919.
+The 135th Aero Squadron was organized on 1 August 1917 at Rockwell Field, California. A Corps Observation (Reconnaissance) squadron, it took part in the Somme Defensive; St. Mihiel offensive, and Meuse-Argonne offensive campaigns. It was re-designated as the 22d Observation Squadron in March 1921 as part of the permanent United States Army Air Service.
+The two units were consolidated in April 1937. During World War II, the squadron became part of Ninth Air Force in the European Theater of Operations (ETO) as a tactical reconnaissance squadron. During the Cold War, it was part of Tactical Air Command.
