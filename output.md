@@ -1,4 +1,3 @@
-## The Fox Lover
+## The House on Falling Star Hill
 
-The Fox Lover (Chinese: 白狐) is a 2013 Chinese film directed by Niu Chaoyang and starring Gillian Chung, Julian Cheung, Kara Hui and Gao Hu.
-
+The House on Falling Star Hill is a children's fantasy novel by Michael Molloy. It is intended for 9- to 12-year-olds, that is, the tween market.
