@@ -1,3 +1,3 @@
-## List of university art museums and galleries in New York State
+## Subjects of Desire
 
-This is a list of university art museums and galleries in New York State.
+Subjects of Desire: Hegelian Reflections in Twentieth-Century France is a 1987 book by philosopher Judith Butler. Her first published book, Subjects of Desire was based on her 1984 Ph.D. dissertation.the Dallas Stars. The season, most notably, marked the debut of Patrick Marleau. Marleau, the second overall pick of the 1997 NHL Entry Draft, currently holds most of the Sharks' major franchise records.
