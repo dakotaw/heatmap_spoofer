@@ -1,3 +1,3 @@
-## Subjects of Desire
+## Minuscule 523
 
-Subjects of Desire: Hegelian Reflections in Twentieth-Century France is a 1987 book by philosopher Judith Butler. Her first published book, Subjects of Desire was based on her 1984 Ph.D. dissertation.the Dallas Stars. The season, most notably, marked the debut of Patrick Marleau. Marleau, the second overall pick of the 1997 NHL Entry Draft, currently holds most of the Sharks' major franchise records.
+Minuscule 523 (in the Gregory-Aland numbering), ε 145 (in the Soden numbering), is a Greek minuscule manuscript of the New Testament, on a parchment. Palaeographically it has been assigned to the 14th century. Scrivener labelled it by number 489. It was adapted for liturgical use, with full marginalia.
