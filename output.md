@@ -1,3 +1,3 @@
-## Tom Shand
+## The Shanghai Spell
 
-Thomas Philip (Tom) Shand (16 April 1911 – 11 December 1969) was a New Zealand politician of the National Party.pt of the New Testament, on a parchment. Palaeographically it has been assigned to the 14th century. Scrivener labelled it by number 489. It was adapted for liturgical use, with full marginalia.
+The Shanghai Spell (Spanish: El embrujo de Shanghai) is a 2002 Spanish film written and directed by Fernando Trueba. The film is based on the novella of the same name written by Juan Marsé and published in 1993.
