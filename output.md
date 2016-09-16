@@ -1,3 +1,3 @@
-## MED21
+## George Story (politician)
 
-Mediator of RNA polymerase II transcription subunit 21 is an enzyme that in humans is encoded by the MED21 gene.
+George William Bennett Story (24 March 1849 – 3 June 1931) was a Member of the Queensland Legislative Assembly.
