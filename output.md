@@ -1,3 +1,8 @@
-## George Story (politician)
+## Havercroft
 
-George William Bennett Story (24 March 1849 – 3 June 1931) was a Member of the Queensland Legislative Assembly.
+For the lost village in Lincolnshire see Havercroft, Thonock, Lincolnshire
+
+Havercroft is a small village situated on the B6428 in West Yorkshire, England, approximately 7 mi (11 km) south east of the city of Wakefield. It forms part of the civil parish of Havercroft with Cold Hiendley, which has a population of 2,103, increasing to 2,256 at the 2011 Census.
+In the last 100 years it has grown from a small collection of homes to a thriving village in its own right. Havercroft now maintains its own school, Havercroft J & I School. The Ryhill & Havercroft Sports Centre is shared with Ryhill as is the local health centre, Rycroft Primary Care Centre. Havercroft also has a 'community hub' known as the Havercroft & Ryhill Community Learning Centre (located in Ryhill) which is also the Havercroft Parish Hall. The Havercroft with Cold Hiendley Parish Council meets there and the Centre provides a regular calendar of educational courses & community activities for both Havercroft and its neighbour Ryhill.
+Havercroft suffered from high unemployment in the 1980s due to local pit closures. Since then the village has become popular with commuters travelling to nearby towns such as Pontefract, Barnsley and Wakefield.
+Havercroft is split into two undistinct sections, Newstead - occupying the higher ground of Newstead hill - and the main village of Havercroft. In terms of the built environment Havercroft is co-terminous with its Ryhill neighbour with the boundary of the two civil parishes following along streetside and garden fence rather than across open fields for much of its length.
