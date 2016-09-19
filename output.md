@@ -1,4 +1,5 @@
-## Samuel Mills Tracy
+## Christen Christensen (figure skater)
 
-Samuel Mills Tracy (1847–1920) was an American botanist.ely used administrative agency imposed by Nazi Germany during World War II, predominantly within the ghettos in Nazi-occupied Europe, and the Jewish ghettos in German-occupied Poland. The Nazi German administration required Jews to form a Judenrat in every community across the occupied territories.
-The Judenrat constituted a form of self-enforcing intermediary, used by the Nazi administration to control larger Jewish communities in occupied areas. The Germans also implemented the name Jewish Council of Elders (Jüdischen Ältestenrat or Ältestenrat der Juden) in some ghettos, as in the Łódź Ghetto, and in Theresienstadt or in the Bergen-Belsen concentration camp. While the history of the term Judenrat itself is unclear, Jewish communities themselves had established councils for self-government as far back as the Medieval Era. While the Hebrew term of Kahal (קהל) or Kehillah (קהילה) was used by the Jewish community, German authorities generally tended to use the term Judenräte.placed by Yao.
+Christen Christensen (17 September 1904 in Oslo – 2 June 1969 in Oslo) was a Norwegian pair skater. He represented Oslo Skøiteklub.
+His pairs partner was Randi Bakke. They are the 1933 World bronze medalists. They finished fifth at the 1923 World Figure Skating Championships and the 1934 World Figure Skating Championships. They represented Norway at the 1936 Winter Olympics, where they placed 15th.
+They were also eight time (1929–1936) Norwegian national champions.
