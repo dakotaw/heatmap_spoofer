@@ -1,5 +1,3 @@
-## Çarlı
+## Ashok Seth
 
-Çarlı (also, Carlı and Dzharly) is a village and municipality in the Kurdamir Rayon of Azerbaijan.ta Yuma is located along U.S. Route 61, approximately four miles north of Anguilla.
-Nitta Yuma has a zip code of 38763.
-A 2013 episode of Deep South Paranormal was filmed at the Henry Vick House in Nitta Yuma.
+Ashok Seth is an Indian interventional cardiologist, credited with the performance of over 50,000 angiograms and 20,000 angioplasties, which has been included in the Limca Book of Records, a reference book for achievements and records from an Indian perspective. He is a Fellow of the Royal Colleges of Physicians of London, Edinburgh and Ireland and serves as the chief cardiologist, holding the chairs of the department of cardiovascular sciences and cardiology council at the Fortis Healthcare. Seth, a recipient of the Order of Isabella the Catholic, was honored by the Government of India with the fourth highest Indian civilian award of Padma Shri, in 2003, followed by Padma Bhushan, the third highest Indian civilian award, in 2015.
