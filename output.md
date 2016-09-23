@@ -1,7 +1,5 @@
-## Kesley Kondo
+## Kurt Paul
 
-Kesley Kondo (born December 1, 1989) is a Brazilian baseball pitcher. He attended Bloomington High School, West Los Angeles College and the University of Utah. He represented Brazil at the 2013 World Baseball Classic., zoology and botany.
-The son of Nikolaus von Jacquin, he graduated from the University of Vienna as a doctor of medicine in 1788.
-Between 1788 and 1791 Jacquin was sent on a scientific journey to Germany, France and England by Emperor Francis II.
-He inherited his father’s position as professor of botany and chemistry at the University of Vienna, which he held from 1797 until his retirement in 1838. In 1821, he was elected a foreign member of the Royal Swedish Academy of Sciences.
-
+Kurt Paul is an American actor and stuntman.
+He is perhaps best known for his work within the Psycho movie franchise, where he performed as a stunt double for Anthony Perkins in Psycho II and Psycho III, and played "Mother" in all of the scenes of Psycho III except when Perkins' face was visible at the end.
+Paul has had guest roles as "Norman Baines" and "Norman Blates" in the television series Knight Rider and Sledge Hammer!, respectively. In the television movie Bates Motel Paul played the role of Norman Bates. Paul appeared in Psycho IV: The Beginning, he had a supporting role as Raymond Linette.
