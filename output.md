@@ -1,7 +1,4 @@
-## Gammans
+## 2001 PBA Commissioner's Cup Finals
 
-Gammans may refer to:
-David Gammans
-Muriel Gammans
-Gammans Baronetsd researcher. Widely known as a futurist, scientist, and author, Tough was Professor Emeritus at the University of Toronto at the time of his death. He made major contributions to the fields of Adult Education, Futures Studies, and SETI. Linking these fields together was Tough's concern with the long-term future of humanity in the cosmos, and humankind's search for meaning and purpose on personal, societal, and global levels. He taught at the Ontario Institute for Studies in Education (OISE), University of Toronto, for 33 years, retiring from teaching in 1997. After his retirement he devoted his time and energy to his research interests.
-
+The 2001 PBA Commissioner's Cup Finals was the best-of-7 championship series of the 2001 PBA Commissioner's Cup and the conclusion of the conference's playoffs. The San Miguel Beermen and sophomore team Batang Red Bull Thunder played for the 79th championship contested by the league. 
+Batang Red Bull Thunder won the Commissioner's Cup title in only their second season and fifth conference. The Thunder defeated San Miguel Beermen, winners of five of the last six conferences, in Game 6 for a 4-2 series victory.
