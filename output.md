@@ -1,3 +1,7 @@
-## Mary Katherine Fechtel
+## Gammans
 
-Mary Katherine Fechtel (born July 10, 1995) is an American beauty pageant titleholder from Leesburg, Florida, who was crowned Miss Florida's Outstanding Teen 2010 and Miss Florida 2015. She competed for the Miss America 2016 title in September 2015 and placed in the top 10.
+Gammans may refer to:
+David Gammans
+Muriel Gammans
+Gammans Baronetsd researcher. Widely known as a futurist, scientist, and author, Tough was Professor Emeritus at the University of Toronto at the time of his death. He made major contributions to the fields of Adult Education, Futures Studies, and SETI. Linking these fields together was Tough's concern with the long-term future of humanity in the cosmos, and humankind's search for meaning and purpose on personal, societal, and global levels. He taught at the Ontario Institute for Studies in Education (OISE), University of Toronto, for 33 years, retiring from teaching in 1997. After his retirement he devoted his time and energy to his research interests.
+
