@@ -1,3 +1,5 @@
-## Lenartov
+## Shinjuku Musashinokan
 
-Lenartov is a village and municipality in Bardejov District in the Prešov Region of north-east Slovakia.
+The Shinjuku Musashinokan (新宿武蔵野館) is a long-standing movie theater located on the east side of Shinjuku Station in Tokyo, Japan. Originally started as the Musashinokan in May 1920, it quickly became Tokyo's premiere independent high-class theater showing foreign films. The theater program featured top-level film criticism and a committee of the managers and of film critics such as Akira Iwasaki helped program the films shown there. It was also famous in the silent era for the erudite benshi narration of Musei Tokugawa. On occasion, it also showed Japanese films such as Teinosuke Kinugasa's A Page of Madness.
+When it was rebuilt in 1968 as part of a multi-purpose building, occupying the seventh floor, it changed its name to the Shinjuku Musashinokan. Its owner, Musashino Kōgyō, also started other theaters using the name, such as the Ōi Musashinokan and the Nakano Musashinokan.
+The Shinjuku Musashinokan still operates as a theater showing films on three screens.
