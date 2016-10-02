@@ -1,5 +1,9 @@
-## Shinjuku Musashinokan
+## Benjamin Maund
 
-The Shinjuku Musashinokan (新宿武蔵野館) is a long-standing movie theater located on the east side of Shinjuku Station in Tokyo, Japan. Originally started as the Musashinokan in May 1920, it quickly became Tokyo's premiere independent high-class theater showing foreign films. The theater program featured top-level film criticism and a committee of the managers and of film critics such as Akira Iwasaki helped program the films shown there. It was also famous in the silent era for the erudite benshi narration of Musei Tokugawa. On occasion, it also showed Japanese films such as Teinosuke Kinugasa's A Page of Madness.
-When it was rebuilt in 1968 as part of a multi-purpose building, occupying the seventh floor, it changed its name to the Shinjuku Musashinokan. Its owner, Musashino Kōgyō, also started other theaters using the name, such as the Ōi Musashinokan and the Nakano Musashinokan.
-The Shinjuku Musashinokan still operates as a theater showing films on three screens.
+Benjamin Maund (1790–1863) was a British pharmacist, botanist, printer, bookseller, fellow of the Linnean Society (1827) and publisher of the Botanic Garden and The Botanist. He served on the committee of the Worcestershire Natural History Society where he started a monthly botanical publication.
+Starting in 1825, Maund produced The Botanic Garden from his press at Bromsgrove in Worcestershire. The 13 volumes of this periodical depicted with great delicacy ornamental flowering plants cultivated in the Royal Gardens and was dedicated to the young Queen Victoria. Eminent botanical artists such as Augusta Innes Withers, Edwin D. Smith, Mrs. Edward Bury and Maund's own daughter contributed to the work. The work was published by Baldwin, Cradock & Joy of London. A special 'Crown Edition' of the work was also published in which each page depicted a single species rather than four to a page as in the first edition. Each page had a decorative border topped by a crown. Issued as a supplement to The Botanic Garden were 70 numbered prints under the title of The Fruitist. Each of these was a hand-coloured engraving and description of a particular fruit.
+
+"A delightful work, not only full of useful and practical information, but illustrated with most charming plates carefully engraved and coloured"
+
+Maund and the Rev. John Stevens Henslow collaborated in 1837 to produce The Botanist, a botanical journal the goal of which was to educate gardeners. Five volumes of lavish hand-coloured illustrations were issued, Augusta Innes Withers once more being the most important botanical artist to contribute. The plates were engraved by S Watts, Nevitt & Smith.
+
