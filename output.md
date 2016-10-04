@@ -1,3 +1,3 @@
-## Gunlogson Farmstead Historic Site
+## List of diplomatic missions in the Czech Republic
 
-The Gunlogson Farmstead Historic Site near Cavalier, North Dakota is a farm that was developed in 1882. It was listed on the National Register of Historic Places in 2008. The listing included four contributing buildings on 4.2 acres (1.7 ha).
+This page lists diplomatic missions resident in the Czech Republic. At present, the capital city of Prague hosts 85 embassies. 71 other countries have missions accredited from other capitals, mostly in Vienna, Berlin and Moscow. Embassies in Prague are mostly located in historical palaces of Malá Strana - one of Prague's historical and oldest boroughs, or in residential areas of Bubeneč or Střešovice northwest from the historical centre of Prague.
