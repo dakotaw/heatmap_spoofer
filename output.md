@@ -1,3 +1,3 @@
-## List of diplomatic missions in the Czech Republic
+## Stefano Muccioli
 
-This page lists diplomatic missions resident in the Czech Republic. At present, the capital city of Prague hosts 85 embassies. 71 other countries have missions accredited from other capitals, mostly in Vienna, Berlin and Moscow. Embassies in Prague are mostly located in historical palaces of Malá Strana - one of Prague's historical and oldest boroughs, or in residential areas of Bubeneč or Střešovice northwest from the historical centre of Prague.
+Stefano Muccioli (born 19 Januari 1968) is one of San Marino's most experienced football players. Now retired from playing.
