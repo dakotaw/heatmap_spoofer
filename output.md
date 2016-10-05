@@ -1,7 +1,3 @@
-## Falsostesilea
+## Fingal County Council election, 1991
 
-Falsostesilea is a genus of longhorn beetles of the subfamily Lamiinae, containing the following species:
-Falsostesilea perforata (Pic, 1926)
-Falsostesilea puncticollis Breuning, 1940
-
-^ Biolib.cz - Falsostesilea. Retrieved on 8 September 2014.
+An election to Fingal County Council took place on 27 June 1991 as part of that year's Irish local elections. 24 councillors were elected from six electoral divisions by PR-STV voting for an eight-year term of office.
