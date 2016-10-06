@@ -1,4 +1,3 @@
-## Alan Pottasch
+## Operation Looking Glass
 
-Alan Maxwell Pottasch (August 13, 1927 in Long Island, NY – July 27, 2007 in Los Angeles) was an American advertising executive and marketer best known for his five decades of work for PepsiCo. Specifically, Pottasch is best known as the creator behind the "Pepsi Generation" advertising campaign.
-
+Looking Glass (or Operation Looking Glass) is the code name for an airborne command and control center operated by the United States. It provides command and control of U.S. nuclear forces in the event that ground-based command centers were destroyed or otherwise rendered inoperable. In such an event, the general officer aboard the Looking Glass serves as the Airborne Emergency Action Officer (AEAO) and by law assumed the authority of the National Command Authority and could command execution of nuclear attacks. The AEAO is supported by a battle staff of approximately 20 people, with another dozen responsible for the operation of the aircraft systems.
