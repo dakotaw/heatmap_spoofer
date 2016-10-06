@@ -1,3 +1,4 @@
-## Fingal County Council election, 1991
+## Alan Pottasch
 
-An election to Fingal County Council took place on 27 June 1991 as part of that year's Irish local elections. 24 councillors were elected from six electoral divisions by PR-STV voting for an eight-year term of office.
+Alan Maxwell Pottasch (August 13, 1927 in Long Island, NY – July 27, 2007 in Los Angeles) was an American advertising executive and marketer best known for his five decades of work for PepsiCo. Specifically, Pottasch is best known as the creator behind the "Pepsi Generation" advertising campaign.
+
