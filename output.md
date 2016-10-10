@@ -1,4 +1,4 @@
-## Ølby
+## Pasi Rantanen
 
-Ølby (meaning Beer Town in Danish or "the place where the people are making good beer") is a neighbourhood north of the town of Køge divided into two parts, the village of Ølby and east of the village near the shore of the Bay of Køge a suburb named Ølby Lyng 35 km south-west of Copenhagen, Denmark, located in the northern part of Køge. The suburb is connected with the radial line Køgebugtbanen, a part of the S-train network, at the Ølby station.
-Ølby church is a small modern church build in 1997.
+Pasi Rantanen (born 30 October 1969 Helsinki, Finland) is a Finnish singer. Best known for his power metal band Thunderstone, of which he was a member from the band's creation in 2000 until 2007.
+Rantanen also served as a background singer on, amongst other things, Stratovarius, Kotipelto and Ari Koivunen albums. In addition, the album Raskasta Joulua featured his talents on a version of "White Christmas". Rantanen also appeared at the Eurovision 2006 performance by Lordi as a background singer wearing a mask of Gene Simmons from Kiss. He is currently performing in a band called Joe Doakes, a Finnish cover band and STRIKE, a melodic rock band that he co-founded in 1985.
