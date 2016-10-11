@@ -1,4 +1,5 @@
-## Barış Memiş
+## Sun on the Stubble
 
-Barış Memiş (born 5 January 1990) is a Turkish professional footballer. He currently plays as an attacking midfielder for Adanaspor.e was a member from the band's creation in 2000 until 2007.
-Rantanen also served as a background singer on, amongst other things, Stratovarius, Kotipelto and Ari Koivunen albums. In addition, the album Raskasta Joulua featured his talents on a version of "White Christmas". Rantanen also appeared at the Eurovision 2006 performance by Lordi as a background singer wearing a mask of Gene Simmons from Kiss. He is currently performing in a band called Joe Doakes, a Finnish cover band and STRIKE, a melodic rock band that he co-founded in 1985.
+Sun on the Stubble is a novel by Colin Thiele, published in 1961. It tells the story of a German immigrant family living in rural South Australia during the 1930s.
+It was adapted in 1996 as a TV miniseries entitled "The Valley Between". Colin Thiele was a South Australian educator and school principal.
+
