@@ -1,4 +1,3 @@
-## Taylorville High School
+## Unity Ranger Station
 
-Taylorville Senior High School is a four-year public high school located in Taylorville, Illinois. The mascot is Tommy Tornado. The school colors are purple and gold.
-THS is part of TCUSD #3 which also includes a middle-school, three elementary schools located in Taylorville and Mt. Auburn Elementary School and Stonington Elementary. However, at the end of the 2008-2009 academic school year, West Elementary School and Mt. Auburn closed.
+The Unity Ranger Station is a United States Forest Service compound consisting of five buildings and a lookout tower in the Wallowa-Whitman National Forest of northeastern Oregon. For many years, it was the administrative headquarters for the Unity Ranger District. It is located in the small unincorporated community of Unity, Oregon. The historic structures were built in the rustic style by the Civilian Conservation Corps between 1936 and 1938. Today, the ranger station is only used during the summer months to house Forest Service fire crews. The ranger station is listed on the National Register of Historic Places.
