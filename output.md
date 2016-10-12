@@ -1,5 +1,4 @@
-## Sun on the Stubble
+## Taylorville High School
 
-Sun on the Stubble is a novel by Colin Thiele, published in 1961. It tells the story of a German immigrant family living in rural South Australia during the 1930s.
-It was adapted in 1996 as a TV miniseries entitled "The Valley Between". Colin Thiele was a South Australian educator and school principal.
-
+Taylorville Senior High School is a four-year public high school located in Taylorville, Illinois. The mascot is Tommy Tornado. The school colors are purple and gold.
+THS is part of TCUSD #3 which also includes a middle-school, three elementary schools located in Taylorville and Mt. Auburn Elementary School and Stonington Elementary. However, at the end of the 2008-2009 academic school year, West Elementary School and Mt. Auburn closed.
