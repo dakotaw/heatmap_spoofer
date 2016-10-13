@@ -1,3 +1,0 @@
-## Unity Ranger Station
-
-The Unity Ranger Station is a United States Forest Service compound consisting of five buildings and a lookout tower in the Wallowa-Whitman National Forest of northeastern Oregon. For many years, it was the administrative headquarters for the Unity Ranger District. It is located in the small unincorporated community of Unity, Oregon. The historic structures were built in the rustic style by the Civilian Conservation Corps between 1936 and 1938. Today, the ranger station is only used during the summer months to house Forest Service fire crews. The ranger station is listed on the National Register of Historic Places.
