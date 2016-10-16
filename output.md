@@ -1,5 +1,7 @@
-## Maggie May (musical)
+## List of people who have headed the United States Patent Office
 
-Maggie May is a musical with a book by Alun Owen and music and lyrics by Lionel Bart. Based on "Maggie May", a traditional ballad about a Liverpool prostitute, it deals with trade union ethics and disputes among Irish-Catholic dockers in Liverpool, centring on the life of streetwalker Margaret Mary Duffy and her sweetheart, a freewheeling sailor.
-The show includes bittersweet ballads, robust chorus numbers, and even some rock 'n' roll, making it one of the most musically diverse British scores of the 1960s. Steven Suskin, in reviewing a newly released CD, wrote: the show begins with a "rather weird folk-ballad", and has "a couple of gentle lullaby-like ballads...raucous production numbers... a tongue-twister, set to an almost violent waltz", along with a distinctive version of the title song "which mixes a sailor's chanty with — what, Dixieland?".
+Following is a list of persons who have headed the United States Patent Office. The title associated with this function has changed over time, from Superintendent of Patents to Commissioner of Patents to Undersecretary of Commerce for Intellectual Property. The duties of the office have also evolved significantly, including coming to encompass the supervision of trademark issuance as well as that of patents.
+Beginning in 2001, the Patent Office has been under an Undersecretary of Commerce. The persons holding this office have been:
 
+Note
+a Dickinson served in analogous role as Assistant Secretary of Commerce and Commissioner of Patents and Trademarks beginning in 1998. That position was transformed into the Under Secretary of Commerce for Intellectual Property and Director of the United States Patent and Trademark Office effective January 17, 2001.
