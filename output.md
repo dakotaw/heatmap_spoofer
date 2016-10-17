@@ -1,7 +1,5 @@
-## List of people who have headed the United States Patent Office
+## Empire Diner
 
-Following is a list of persons who have headed the United States Patent Office. The title associated with this function has changed over time, from Superintendent of Patents to Commissioner of Patents to Undersecretary of Commerce for Intellectual Property. The duties of the office have also evolved significantly, including coming to encompass the supervision of trademark issuance as well as that of patents.
-Beginning in 2001, the Patent Office has been under an Undersecretary of Commerce. The persons holding this office have been:
+The Empire Diner is a restaurant in New York City that launched a vogue for upscale retro diners, and whose Art Moderne exterior became an iconic image in numerous films and television programs.
+Constructed by the Fodero Dining Car Company in 1946 and operating as a Manhattan diner until being abandoned years later, it was refurbished in 1976, with additions including a stylized Empire State Building outline on its roof. It became a city fixture and an artists' nexus from then on. The restaurant closed on May 15, 2010, and The Highliner opened briefly in its space that same year. The restaurant reopened under the name Empire Diner, under executive chef Amanda Freitag, in January 2014.
 
-Note
-a Dickinson served in analogous role as Assistant Secretary of Commerce and Commissioner of Patents and Trademarks beginning in 1998. That position was transformed into the Under Secretary of Commerce for Intellectual Property and Director of the United States Patent and Trademark Office effective January 17, 2001.
