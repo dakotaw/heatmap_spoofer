@@ -1,6 +1,3 @@
-## Lithoprocris hamon
+## Finance Corps
 
-Lithoprocris hamon is a moth of the Arctiidae family. It was described by Druce in 1902. It is found in Peru.exandria, Zamalek won the match 2–1.
-
-mber 1981 as the fifth single from the album Drifter. The song reached #8 on the Billboard Hot Country Singles & Tracks chart.
-
+The United States Army Finance Corps is a combat service support (CSS) branch of the United States Army. The Finance Corps is the successor to the old Pay Department, which was created in June 1775. The Finance Department was created by law on 1 July 1920 [1]. It became the Finance Corps in 1950. It is responsible for financial operations, most notably payroll and resource management. It is the smallest branch of the Army [2].
