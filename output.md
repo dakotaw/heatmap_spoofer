@@ -1,3 +1,4 @@
-## Finance Corps
+## Farahalana
 
-The United States Army Finance Corps is a combat service support (CSS) branch of the United States Army. The Finance Corps is the successor to the old Pay Department, which was created in June 1775. The Finance Department was created by law on 1 July 1920 [1]. It became the Finance Corps in 1950. It is responsible for financial operations, most notably payroll and resource management. It is the smallest branch of the Army [2].
+Farahalana is a town and commune (Malagasy: kaominina) in northern Madagascar. It belongs to the district of Sambava, which is a part of Sava Region and lies near the mouth of the Lokoho River at the Indian Ocean. The population of the commune was estimated to be approximately 23,000 in 2001 commune census.
+Primary and junior level secondary education are available in town. The majority 96% of the population the commune are farmers. The most important crop is vanilla, while other important products are coffee, cloves and rice. Services provide employment for 2% of the population. Additionally fishing employs 2% of the population.
