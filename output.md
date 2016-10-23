@@ -1,0 +1,3 @@
+## Tolypocladium inflatum
+
+Tolypocladium inflatum is an ascomycete fungus originally isolated from a Norwegian soil sample that, under certain conditions, produces the immunosuppressant drug ciclosporin. In its sexual stage (teleomorph) it is a parasite on scarab beetles. It forms a small, compound ascocarp that arises from the cadaver of its host beetle. In its asexual stage (anamorph) it is a white mold that grows on soil. It is much more commonly found in its asexual stage and this is the stage that was originally given the name Tolypocladium inflatum.
