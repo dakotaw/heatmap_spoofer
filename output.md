@@ -1,3 +1,0 @@
-## Antonio Ferrandis
-
-Antonio Ferrandis Monrabal (28 February 1921 – 16 October 2000) was a Spanish actor, remembered especially for his character Chanquete.uces the immunosuppressant drug ciclosporin. In its sexual stage (teleomorph) it is a parasite on scarab beetles. It forms a small, compound ascocarp that arises from the cadaver of its host beetle. In its asexual stage (anamorph) it is a white mold that grows on soil. It is much more commonly found in its asexual stage and this is the stage that was originally given the name Tolypocladium inflatum.
