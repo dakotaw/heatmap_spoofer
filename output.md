@@ -1,4 +1,4 @@
-## Mohamed Bangura
+## 1997 Mosconi Cup
 
-Mohamed Bangura (born 27 July 1989) is a professional footballer from Sierra Leone who plays as a striker and as of 2015 a player for China League One club Dalian Yifang.
-
+The 1997 Virtual Pool 2 Mosconi Cup, the fourth edition of the annual nine-ball pool competition between teams representing Europe and the United States, took place 18–21 December 1997 at the York Hall in Bethnal Green, London, England.
+Team USA won the Mosconi Cup by defeating Team Europe 13–8.
