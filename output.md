@@ -1,4 +1,3 @@
-## Thallarcha partita
+## Swimming at the 2014 European Aquatics Championships – Men's 100 metre butterfly
 
-Thallarcha partita is a moth of the Arctiidae family. It is found in New South Wales, Queensland and Victoria.
-The wingspan is about 15 mm.
+The Men's 100 metre butterfly competition of the 2014 European Aquatics Championships was held on 22–23 August.
