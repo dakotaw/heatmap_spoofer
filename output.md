@@ -1,5 +1,3 @@
-## Weaver's Mill Covered Bridge
+## Sparganopseustis ningorana
 
-The Weaver's Mill Covered Bridge is a covered bridge that spans the Conestoga River in Lancaster County, Pennsylvania, United States. The 85-foot-long (26 m), 15-foot-wide (4.6 m) bridge was built in 1878 by B. C. Carter and J. F. Stauffer across Conestoga River. It is also known as Isaac Shearer's Mill Bridge.
-The bridge has a single span, wooden, double Burr arch trusses design with the addition of steel hanger rods. It is painted red, the traditional color of Lancaster County covered bridges, on both the inside and outside. Both approaches to the bridge are painted in the traditional white color.
-The bridge's WGCB Number is 38-36-02. Added in 1980, it is listed on the National Register of Historic Places as structure number 80003511. It is located at 40°8′28.2″N 75°59′52.2″W (40.14117, -75.99783).
+Sparganopseustis ningorana is a species of moth of the Tortricidae family. It is found in Guatemala.
