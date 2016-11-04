@@ -1,0 +1,3 @@
+## Zenazocine
+
+Zenazocine (INN; WIN-42,964) is an opioid analgesic of the benzomorphan family which made it to phase II clinical trials before development was ultimately halted and it was never marketed. It acts as a partial agonist of the μ- and δ-opioid receptors, with less intrinsic activity at the former receptor and more at the latter receptor (hence, it behaves more antagonistically at the former and more agonistically at the latter), and produces antinociceptive effects in animal studies.
