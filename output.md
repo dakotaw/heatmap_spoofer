@@ -1,3 +1,3 @@
-## Zenazocine
+## Marshall Township, Clark County, Illinois
 
-Zenazocine (INN; WIN-42,964) is an opioid analgesic of the benzomorphan family which made it to phase II clinical trials before development was ultimately halted and it was never marketed. It acts as a partial agonist of the μ- and δ-opioid receptors, with less intrinsic activity at the former receptor and more at the latter receptor (hence, it behaves more antagonistically at the former and more agonistically at the latter), and produces antinociceptive effects in animal studies.
+Marshall Township is one of fifteen townships in Clark County, Illinois, USA. As of the 2010 census, its population was 4,574 and it contained 2,153 housing units. of Greensburg, PA, just off Business Route 66.
