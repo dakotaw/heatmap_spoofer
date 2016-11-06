@@ -1,3 +1,8 @@
-## Franklin and the Green Knight
+## List of NCAA Division I-A/FBS football seasons
 
-Franklin and the Green Knight (also known as Franklin and the Green Knight: The Movie) was the first ever Franklin movie, released direct to video and DVD in 2000. It has since aired on Noggin and Nick Jr. in the United States, and Canada's Family Channel.m received mixed reviews from critics and drew comparisons to The A-Team, a remake of which was released shortly after The Losers premiered.
+A list of NCAA Division I-A college football seasons since the division split in 1978. In 2006, Division I-A was renamed Division I Football Bowl Subdivision (or Division I FBS for short).
+Division I-A
+
+Division I FBS
+
+The following table summarizes the articles linked above.
