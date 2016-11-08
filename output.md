@@ -1,3 +1,4 @@
-## Samuel Odulana Odungade I
+## Doris Abele
 
-Samuel Odulana Odungade (April 14, 1914 – January 19, 2016) was the 40th Olubadan of Ibadan and also reputed to have been the oldest living monarch in Nigeria.
+Doris Abele is an Antarctic marine biologist based at the Alfred Wegener Institute (AWI). She leads the research group working on Stress Physiology and Aging in Marine Invertebrates and also the Ecology Polar regions And Coasts in the changing Earth System (PACES) programme.
+
