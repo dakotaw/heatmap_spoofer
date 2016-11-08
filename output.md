@@ -1,3 +1,3 @@
-## Robin Lovell-Badge
+## Samuel Odulana Odungade I
 
-Robin Howard Lovell-Badge, FRS is a British scientist most famous for his discovery, along with Peter Goodfellow, of the SRY gene on the Y-chromosome that is the determinant of sex in mammals. He is currently a Group Leader and Head of the Division of Stem Cell Biology and Developmental Genetics at the Francis Crick Institute in Central London.
+Samuel Odulana Odungade (April 14, 1914 – January 19, 2016) was the 40th Olubadan of Ibadan and also reputed to have been the oldest living monarch in Nigeria.
