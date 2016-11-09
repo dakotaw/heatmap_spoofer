@@ -1,3 +1,4 @@
-## St. John's Church, Delvinë
+## Albert E. Sleeper State Park
 
-St. John's Church (Albanian: Kisha e Shën Janit) is a church in Delvinë District, Albania. It is a Cultural Monument of Albania.
+Albert E. Sleeper State Park is a 723-acre (2.9 km2) state park in the U.S. state of Michigan. The park is located in Lake Township, near Caseville in Huron County close to the tip of The Thumb of Michigan, bordered by Lake Huron. The park is named for former Michigan Governor Albert E. Sleeper.
+
