@@ -1,4 +1,3 @@
-## Doris Abele
+## Allah Chal
 
-Doris Abele is an Antarctic marine biologist based at the Alfred Wegener Institute (AWI). She leads the research group working on Stress Physiology and Aging in Marine Invertebrates and also the Ecology Polar regions And Coasts in the changing Earth System (PACES) programme.
-
+Allah Chal (Persian: الله چال‎‎, also Romanized as Āllah Chāl; also known as Aleh Chāl) is a village in Lalehabad Rural District, Lalehabad District, Babol County, Mazandaran Province, Iran. At the 2006 census, its population was 979, in 264 families.
