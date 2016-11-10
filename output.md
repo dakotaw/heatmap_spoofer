@@ -1,4 +1,3 @@
-## Högne
+## Bolitoglossa orestes
 
-For other people named Högne, see Haguna.
-Högne was a king of Östergötland who appears in sources of Norse mythology.
+Bolitoglossa orestes (common name: Culata mushroomtongue salamander; Spanish: salamandra meridena) is a species of salamander in the family Plethodontidae. It is endemic to the Mérida state of Venezuela.
