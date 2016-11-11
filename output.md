@@ -1,6 +1,4 @@
-## Chadagan
+## Tamagotchi: The Movie
 
-The chadagan is a Tuvan plucked zither. It has 16 strings and is tuned to a pentatonic scale. The number of strings varies, and the bridge is sometimes movable.
-
-ed on the German TV series Türkisch für Anfänger ,created by Bora Dağtekin and produced by Hoffmann & Voges Ent.
-The show focuses on the Greek-Turkish stepfamily Christidou-Öztürk, their everyday lives and particularly on the eldest daughter Elli, who narrates the show. During the show's run, topics covered included both typical problems of teenagers and cross-cultural experiences among the Greek and Turkish people considering they're old rivals. People will also have the opportunity to watch Cem and Elli's not good relationship turning into a romantic and adorable love story. Tamam is now said to be the most popular and loved TV series of ANT1 and its third season will air in October 2016.
+Tamagotchi: The Movie (えいがでとーじょー! たまごっち ドキドキ! うちゅーのまいごっち!?, Eiga de Tōjō! Tamagotchi Dokidoki! Uchū no Maigotchi!?", lit. "Appearing on Film! Tamagotchi: Heart-Throbbing! Lost Child In Space!?") is a 2007 Japanese animated film produced by OLM's Team Kamei division. It is the first Tamagotchi feature film ever produced, officially based on the digital pet franchise jointly created by Bandai and WiZ. It is directed by Jōji Shimura of Pokémon and written by Aya Matsui of Boys Over Flowers and was released in theaters by Toho on December 15, 2007, and on DVD on July 23, 2008 in Japan.
+The movie was dubbed & released by Madman Entertainment on June 1, 2009 in English in both Australia and United Kingdom. It is followed by a sequel, Tamagotchi: Happiest Story in the Universe!.
