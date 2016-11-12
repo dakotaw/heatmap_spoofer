@@ -1,4 +1,3 @@
-## Tamagotchi: The Movie
+## Vesela Gora
 
-Tamagotchi: The Movie (えいがでとーじょー! たまごっち ドキドキ! うちゅーのまいごっち!?, Eiga de Tōjō! Tamagotchi Dokidoki! Uchū no Maigotchi!?", lit. "Appearing on Film! Tamagotchi: Heart-Throbbing! Lost Child In Space!?") is a 2007 Japanese animated film produced by OLM's Team Kamei division. It is the first Tamagotchi feature film ever produced, officially based on the digital pet franchise jointly created by Bandai and WiZ. It is directed by Jōji Shimura of Pokémon and written by Aya Matsui of Boys Over Flowers and was released in theaters by Toho on December 15, 2007, and on DVD on July 23, 2008 in Japan.
-The movie was dubbed & released by Madman Entertainment on June 1, 2009 in English in both Australia and United Kingdom. It is followed by a sequel, Tamagotchi: Happiest Story in the Universe!.
+Vesela Gora (pronounced [ʋɛˈseːla ˈɡɔːɾa]) is a small settlement in the Municipality of Šentrupert in southeastern Slovenia. The area is part of the historical region of Lower Carniola. The municipality is now included in the Southeast Slovenia Statistical Region.
