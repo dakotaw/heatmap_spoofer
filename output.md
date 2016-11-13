@@ -1,3 +1,3 @@
-## Vesela Gora
+## 2006 Fed Cup Americas Zone Group I – Pool A
 
-Vesela Gora (pronounced [ʋɛˈseːla ˈɡɔːɾa]) is a small settlement in the Municipality of Šentrupert in southeastern Slovenia. The area is part of the historical region of Lower Carniola. The municipality is now included in the Southeast Slovenia Statistical Region.
+Group A of the 2006 Fed Cup Americas Zone Group I was one of two pools in the Americas Zone Group I of the 2006 Fed Cup. Four teams competed in a round robin competition, with the top team and the bottom two teams proceeding to their respective sections of the play-offs: the top teams played for advancement to the World Group II Play-offs, while the bottom teams faced potential relegation to Group II.
