@@ -1,3 +1,4 @@
-## 2006 Fed Cup Americas Zone Group I – Pool A
+## Sometimes It's Only Love
 
-Group A of the 2006 Fed Cup Americas Zone Group I was one of two pools in the Americas Zone Group I of the 2006 Fed Cup. Four teams competed in a round robin competition, with the top team and the bottom two teams proceeding to their respective sections of the play-offs: the top teams played for advancement to the World Group II Play-offs, while the bottom teams faced potential relegation to Group II.
+"Sometimes It's Only Love" is a 1991 song by American recording artist Luther Vandross. The single was released in 1992 in support of his album Power of Love. The song was a top ten hit (at No. 9) on the Billboard's Hot R&B Singles and Hot Adult Contemporary Tracks.
+
