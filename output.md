@@ -1,3 +1,3 @@
-## Shawn Holman
+## Marinilla
 
-Shawn Leroy Holman (born November 19, 1964 in Sewickley, Pennsylvania) is a former baseball pitcher who appeared in five games for the Detroit Tigers in 1989.
+Marinilla is a town and municipality in the Colombian department of Antioquia. Part of the subregion of Eastern Antioquia. of a player's sound. Tone is the product of all influences on what can be heard by the listener, including the characteristics of the instrument itself, differences in playing technique (e.g. embouchure for woodwind and brass players, fretting technique or use of a slide in stringed instruments, or use of different mallets in percussion), and the physical space in which the instrument is played. In electric and electronic instruments, tone is also affected by the amplifiers, effects, and speakers used by the musician. In recorded music, tone is also influenced by the microphones, signal processors, and recording media used to record, mix, and master the final recording, as well as the listener's audio system.
