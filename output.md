@@ -1,4 +1,3 @@
-## Cormac Rowe
+## Mandarin Oriental, Atlanta
 
-Cormac Rowe (Bridgetown, County Wexford, born abt. 1983 ) is an Irish Michelin star winning head chef with Lady Helen in Thomastown, County Kilkenny Ireland
-Rowe started his kitchen career in Kelly's Hotel in Rosslare. Later he went to college followed by a stint at The Park Hotel. Since 2006, Rowe works at the Lady Helen Restaurant in the Mount Juliet Hotel. He is the head chef since 2010.
+Mandarin Oriental, Atlanta (formerly The Mansion on Peachtree) is a 580 ft (177 m) tall skyscraper in Atlanta, Georgia. It was constructed from 2006 to 2008 and has 42 floors. It is the 12th tallest building in Atlanta. The design architect for the building was Robert A.M. Stern & Associates, with Atlanta architects Milton Pate Architects serving as the Architect of Record. The project was developed by Atlanta-based City Centre Properties, LLC and constructed by Holder Construction Company.
