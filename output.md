@@ -1,3 +1,4 @@
-## Mandarin Oriental, Atlanta
+## Lindstrom Peninsula
 
-Mandarin Oriental, Atlanta (formerly The Mansion on Peachtree) is a 580 ft (177 m) tall skyscraper in Atlanta, Georgia. It was constructed from 2006 to 2008 and has 42 floors. It is the 12th tallest building in Atlanta. The design architect for the building was Robert A.M. Stern & Associates, with Atlanta architects Milton Pate Architects serving as the Architect of Record. The project was developed by Atlanta-based City Centre Properties, LLC and constructed by Holder Construction Company.
+The Lindstrom Peninsula is located on the southern coast of Ellesmere Island, a part of the Qikiqtaaluk Region of the Canadian territory of Nunavut. Across Baffin Bay to the south lies Devon Island. Harbour Fiord and Landslip Island are to the west, while the Grise Fiord is to the east. The highest peak on the peninsula is Mount Aqiatushuk 76°25′40″N 083°15′00″W.
+In 1953, a small group of Inuit families were resettled on the Lindstrom Peninsula, and others to Craig Harbour, a Royal Canadian Mounted Police trading post 72 km (45 mi) who moved to the Lindstrom Peninsula shortly after their arrival. By the 1960s, they developed a community at what is now the Inuit hamlet of Grise Fiord, 8 km (5 mi) to the east.
