@@ -1,4 +1,3 @@
-## Lindstrom Peninsula
+## Angélica Aragón
 
-The Lindstrom Peninsula is located on the southern coast of Ellesmere Island, a part of the Qikiqtaaluk Region of the Canadian territory of Nunavut. Across Baffin Bay to the south lies Devon Island. Harbour Fiord and Landslip Island are to the west, while the Grise Fiord is to the east. The highest peak on the peninsula is Mount Aqiatushuk 76°25′40″N 083°15′00″W.
-In 1953, a small group of Inuit families were resettled on the Lindstrom Peninsula, and others to Craig Harbour, a Royal Canadian Mounted Police trading post 72 km (45 mi) who moved to the Lindstrom Peninsula shortly after their arrival. By the 1960s, they developed a community at what is now the Inuit hamlet of Grise Fiord, 8 km (5 mi) to the east.
+Angélica Espinoza Stransky, best known as Angélica Aragón (Spanish pronunciation: [aŋˈxelika aɾaˈɣon]; born July 11, 1953) is a Mexican stage, film and telenovelas actress. She is the daughter of Mexican composer José Ángel Espinoza "Ferrusquilla". She is known for her performances in several Mexican and American film productions like Dune (1984), A Walk in the Clouds (1995), Sexo, pudor y lágrimas (1999), El crimen del padre Amaro (2002), Dirty Dancing: Havana Nights (2004) and Bella (2006), among others. She also starred the classic Mexican telenovelas Vivir un poco (1985) and Mirada de Mujer (1997).
