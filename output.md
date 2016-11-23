@@ -1,5 +1,6 @@
-## Gramophone Company
+## Grey-streaked flycatcher
 
-This article is about the company which operated the HMV record label.
-For the HMV Records label, see His Master's Voice.
-The Gramophone Company, based in the United Kingdom, was one of the early recording companies, and was the parent organisation for the famous "His Master's Voice" (HMV) label. Although the company merged with the Columbia Graphophone Company in 1931 to form Electric and Musical Industries Limited (EMI), its name "The Gramophone Company Limited" continued in the UK into the 1970s, appearing on sleeves and labels of records (such as The Dark Side of the Moon by Pink Floyd, vinyl copies of which bear the copyright notice "©1973 The Gramophone Company, Ltd.").
+The grey-streaked flycatcher or grey-spotted flycatcher (Muscicapa griseisticta) is a small passerine bird of eastern Asia belonging to the genus Muscicapa in the Old World flycatcher family Muscicapidae.
+It is a slender, long-winged bird with a length of 13 to 15 cm. It is mainly grey-brown above and white below. The breast and flanks are heavily streaked with grey. There is a narrow white bar on the wing and a pale patch between the bill and eye. The bill and feet are black. The eye is large and there is a white eye-ring. The adult male and female are alike but juvenile birds differ in having white spots and dark scaling on the upperparts.
+It breeds in the vast coniferous forests in north-east China, North Korea and south-east Siberia including Sakhalin and Kamchatka. In spring and autumn it migrates through eastern and southern China, South Korea, Japan and Taiwan. In winter it occurs in forests, forest edges and open country with scattered trees in Borneo, the Philippines, Palau, eastern Indonesia and New Guinea. It is a vagrant to Singapore, Vietnam, Alaska and Australia.
+It perches in the open, waiting for passing insects, then flies out up to 20 metres to catch them before returning to its perch and eating them.
