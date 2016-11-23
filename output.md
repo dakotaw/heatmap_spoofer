@@ -1,7 +1,5 @@
-## Spongy urethra
+## Gramophone Company
 
-The spongy urethra (cavernous portion of urethra, penile urethra) is the longest part of the male urethra, and is contained in the corpus spongiosum of the penis.
-It is about 15 cm long, and extends from the termination of the membranous portion to the external urethral orifice.
-Commencing below the inferior fascia of the urogenital diaphragm it passes forward and upward to the front of the pubic symphysis; and then, in the flaccid condition of the penis, it bends downward and forward.
-It is narrow, and of uniform size in the body of the penis, measuring about 6 mm in diameter; it is dilated behind, within the bulb, and again anteriorly within the glans penis, where it forms the fossa navicularis urethrae.
-The spongy urethra runs along the length of the penis on its ventral (underneath) surface. It is about 15–16 cm in length, and travels through the corpus spongiosum. The ducts from the urethral gland (gland of Littre) enter here. The openings of the bulbourethral glands are also found here. Some textbooks will subdivide the spongy urethra into two parts, the bulbous and pendulous urethra. The urethral lumen runs effectively parallel to the penis, except at the narrowest point, the external urethral meatus, where it is vertical. This produces a spiral stream of urine and has the effect of cleaning the external urethral meatus. The lack of an equivalent mechanism in the female urethra partly explains why urinary tract infections occur so much more frequently in females.
+This article is about the company which operated the HMV record label.
+For the HMV Records label, see His Master's Voice.
+The Gramophone Company, based in the United Kingdom, was one of the early recording companies, and was the parent organisation for the famous "His Master's Voice" (HMV) label. Although the company merged with the Columbia Graphophone Company in 1931 to form Electric and Musical Industries Limited (EMI), its name "The Gramophone Company Limited" continued in the UK into the 1970s, appearing on sleeves and labels of records (such as The Dark Side of the Moon by Pink Floyd, vinyl copies of which bear the copyright notice "©1973 The Gramophone Company, Ltd.").
