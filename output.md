@@ -1,3 +1,3 @@
-## Nokomis, Saskatchewan
+## Depth Charge (Reverend and The Makers song)
 
-Nokomis /nəˈkoʊmᵻs/ is a small town in Saskatchewan, Canada.nfair competition law to prohibit false and misleading advertising. In California, one such statute is the Unfair Competition Law [hereinafter “UCL”], Business and Professions Code §§ 17200 et seq. The UCL “borrows heavily from section 5 of the Federal Trade Commission Act” but has developed its own body of case law.
+"Depth Charge" is a song performed by Reverend and The Makers. The song was released on their 2012 album @Reverend_Makers. It was released as a single in 2012.mpetition Law [hereinafter “UCL”], Business and Professions Code §§ 17200 et seq. The UCL “borrows heavily from section 5 of the Federal Trade Commission Act” but has developed its own body of case law.
