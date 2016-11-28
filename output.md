@@ -1,9 +1,0 @@
-## Roger Toulson, Lord Toulson
-
-Roger Grenfell Toulson, Lord Toulson, Kt, (born 23 September 1946) is a British lawyer and former judge who served as a Justice of the Supreme Court of the United Kingdom. the face of the enemy that can be awarded to British and Commonwealth forces.
-He was born at The Hague, son of Thomas and Rosalie Pryce, of Pentreheylin Hall, Montgomeryshire, and educated at Shrewsbury School after preparatory schooling at Mill Mead School, Shrewsbury.
-He was a member of the London Stock Exchange. He was a married man at time of his death.
-Pryde originally served with the Honourable Artillery Company, which he joined in August 1914, transferred to the 6th Battalion Gloucestershire Regiment in 1915, and again transferred, to the Grenadier Guards by the time of his VC award.
-Pryce was 32 years old and an acting captain in the 4th Battalion, Grenadier Guards, British Army, (S.R.) during the First World War when the following deed took place for which he was awarded the VC.
-On 11 April 1918 at Vieux-Berquin, France, Captain Pryce led two platoons in a successful attack on a village. Early next day he was occupying a position with some 40 men, the rest having become casualties. He beat off four enemy attacks during the day, but by evening the enemy were within 60 yards of his trench. A bayonet charge led by Captain Pryce drove them back some 100 yards, but he had only 17 men left with no ammunition when yet another attack came. He again led a bayonet charge and was last seen engaged in a fierce hand-to-hand struggle against overwhelming odds.
-His Victoria Cross is displayed at The Guards Regimental Headquarters (Grenadier Guards RHQ), London, England.
