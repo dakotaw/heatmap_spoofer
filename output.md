@@ -1,3 +1,4 @@
-## Hey, Jeannie!
+## Commonwealth Heads of Government Meeting 1975
 
-Hey, Jeannie! is an American situation comedy starring Jeannie Carson as a young Scottish woman living in New York City. Twenty-six episodes aired on CBS from September 8, 1956 to May 4, 1957 in the Saturday slot following The Gale Storm Show and preceding the western series Gunsmoke. Six additional episodes aired in 1958 in syndication. Reruns of Hey, Jeannie! aired during the summer of 1960 under the title The Jeannie Carson Show.
+The Commonwealth Heads of Government Meeting 1975 was the third Meeting of the Heads of Government of the Commonwealth of Nations. It was held in Kingston, Jamaica, between 29 April 1975 and 6 May 1975, and was hosted by that country's Prime Minister, Michael Manley.
+Among the topics discussed were nuclear disarmament, the situation in Rhodesia, South Africa and decolonization in Southern Africa, the Turkish invasion and occupation of northern Cyprus, the end of the Vietnam War, the aftermath of the war between Bangladesh and Pakistan and other regional issues.
