@@ -1,3 +1,3 @@
-## Lanouée
+## Uwe Heppner
 
-Lanouée (Breton: Lannoez) is a commune in the Morbihan department of Brittany in north-western France.calendar. At the time, it was known as the Year of the Consulship of Traianus and Etruscus (or, less frequently, year 1004 Ab urbe condita). The denomination 251 for this year has been used since the early medieval period, when the Anno Domini calendar era became the prevalent method in Europe for naming years.
+Uwe Heppner (born 18 July 1960) is a retired German rower. He competed for East Germany at the 1980 and 1988 Summer Olympics and won a gold medal in the quadruple sculls in 1980. He finished fifth in the double sculls in 1988. Between 1979 and 1987 he won four gold and three bronze medals in these two events at the world championships and finished fourth in 1989.he prevalent method in Europe for naming years.
