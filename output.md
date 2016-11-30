@@ -1,4 +1,3 @@
-## Commonwealth Heads of Government Meeting 1975
+## Lanouée
 
-The Commonwealth Heads of Government Meeting 1975 was the third Meeting of the Heads of Government of the Commonwealth of Nations. It was held in Kingston, Jamaica, between 29 April 1975 and 6 May 1975, and was hosted by that country's Prime Minister, Michael Manley.
-Among the topics discussed were nuclear disarmament, the situation in Rhodesia, South Africa and decolonization in Southern Africa, the Turkish invasion and occupation of northern Cyprus, the end of the Vietnam War, the aftermath of the war between Bangladesh and Pakistan and other regional issues.
+Lanouée (Breton: Lannoez) is a commune in the Morbihan department of Brittany in north-western France.calendar. At the time, it was known as the Year of the Consulship of Traianus and Etruscus (or, less frequently, year 1004 Ab urbe condita). The denomination 251 for this year has been used since the early medieval period, when the Anno Domini calendar era became the prevalent method in Europe for naming years.
