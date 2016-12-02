@@ -1,4 +1,3 @@
-## Submarine communications cable
+## Coșna River
 
-A submarine communications cable is a cable laid on the sea bed between land-based stations to carry telecommunication signals across stretches of ocean. The first submarine communications cables, laid in the 1850s, carried telegraphy traffic. Subsequent generations of cables carried telephone traffic, then data communications traffic. Modern cables use optical fiber technology to carry digital data, which includes telephone, Internet and private data traffic.
-Modern cables are typically about 25 millimetres (0.98 in) in diameter and weigh around 1.4 kilograms per metre (0.4 lb/ft) for the deep-sea sections which comprise the majority of the run, although larger and heavier cables are used for shallow-water sections near shore. Submarine cables connected all the world's continents except Antarctica when Java was connected to Darwin, Northern Territory, Australia in 1871 in anticipation of the completion of the Australian Overland Telegraph Line in 1872 connecting to Adelaide, South Australia and thence to the rest of Australia.
+The Coșna River or Bancu River is a tributary of the Dorna River in Romania. The upper reach of the river is also known as Coșnița River.
