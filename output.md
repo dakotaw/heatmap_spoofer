@@ -1,3 +1,0 @@
-## Sadiq Ali Shaheed railway station
-
-Sadiq Ali Shaheed railway station (Urdu: صادق علی شہید ریلوے اسٹیشن ‎) is located in Pakistan.se name is said to be a corruption of the French word "biche" (which means doe), and that French trappers originally named the waterway "Anse de Biche."Band cover. According to drummer Vic Szalaj, much of the album, from its title to the lyrics, were inspired by a 10-day trip he and bassist/vocalist Randy Larsen took to the White Mountains in New Hampshire.
