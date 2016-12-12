@@ -1,3 +1,3 @@
-## Digital Communications Associates
+## Land and Environment Court of New South Wales
 
-Digital Communication Associates, short DCA, is a company in the telecommunications industry, located in Norcross, Georgia, United States.
+The Land and Environment Court of New South Wales is a court within the Australian court hierarchy established pursuant to the Land and Environment Court Act 1979 (NSW) to hear environmental, development, building and planning disputes. The Court’s jurisdiction, confined to the state of New South Wales, Australia, includes merits review, judicial review, civil enforcement, criminal prosecution, criminal appeals and civil claims about planning, environmental, land, mining and other legislation.
