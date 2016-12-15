@@ -1,3 +1,3 @@
-## Jamalpur Gymkhana
+## Daniel Foster (Australian footballer)
 
-The Jamalpur Gymkhana (Hindi: जमालपुर जिमख़ाना), often referred to as Gymkhana (or merely Gym) by its members, is a hostel for young apprentice officers of the Indian Railways. It is also a club like any other Gymkhana. The difference is that membership to this club is restricted only to those who spend their formative years in its corridors. It is difficult to talk about Gymkhana without quickly moving on to the anecdotal history of its members - current and past, referred to as Gymmies by its inmates.
+Daniel Foster (born 20 February 1982) is a former Australian rules footballer for the Geelong Football Club in the Australian Football League (AFL), playing 17 games between 2000 and 2002.ncludes the ancient hamlets of Potsgrove & Battlesden. Today, the village is best known for being the birthplace of Joseph Paxton, the designer of the Crystal Palace, who was born in Milton Bryan as the seventh son of a farming family along with its role in the Second World War.
