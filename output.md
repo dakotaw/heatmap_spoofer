@@ -1,3 +1,3 @@
-## Daniel Foster (Australian footballer)
+## Dawn tetra
 
-Daniel Foster (born 20 February 1982) is a former Australian rules footballer for the Geelong Football Club in the Australian Football League (AFL), playing 17 games between 2000 and 2002.ncludes the ancient hamlets of Potsgrove & Battlesden. Today, the village is best known for being the birthplace of Joseph Paxton, the designer of the Crystal Palace, who was born in Milton Bryan as the seventh son of a farming family along with its role in the Second World War.
+The dawn tetra, panda tetra, or [Rio] Paraguay tetra (Aphyocharax paraguayensis) comes from the Rio Paraguay basin in Paraguay and Brazil. It is a schooling fish; suitable temperatures for the Paraguay tetra are 24 to 27°C. This species is omnivorous with a strong preference for animal food. It will eat normal aquarium fish food, but much prefers live food. The dawn tetra is an egg-scattering species.  This tetra is very active and extremely aggressive towards fish of similar or smaller size or those that are slower moving. Not suitable for the community tank.
