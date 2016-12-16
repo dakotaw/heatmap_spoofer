@@ -1,3 +1,3 @@
-## Dawn tetra
+## Brabham Grand Prix results
 
-The dawn tetra, panda tetra, or [Rio] Paraguay tetra (Aphyocharax paraguayensis) comes from the Rio Paraguay basin in Paraguay and Brazil. It is a schooling fish; suitable temperatures for the Paraguay tetra are 24 to 27°C. This species is omnivorous with a strong preference for animal food. It will eat normal aquarium fish food, but much prefers live food. The dawn tetra is an egg-scattering species.  This tetra is very active and extremely aggressive towards fish of similar or smaller size or those that are slower moving. Not suitable for the community tank.
+The table below details the complete World Championship Grand Prix results for the Brabham Formula One team. The second table includes results from privately owned Brabham cars in World Championship Grands Prix.
