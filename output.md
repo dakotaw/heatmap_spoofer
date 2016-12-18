@@ -1,4 +1,3 @@
-## Clive Ponting
+## Road to the Kentucky Oaks
 
-Clive Sheridan Ponting (born 13 April 1946) is a former senior civil servant, best known for leaking documents about the sinking of the Belgrano in the Falklands War. He is the author of a number of revisionist books on British and world history.
-
+The Road to the Kentucky Oaks is a points system by which three-year-old fillies qualify for the Kentucky Oaks. It features roughly 30 stakes races for 2 and 3-year-old thoroughbred fillies – the number and specific races have varied slightly over the years. The point system replaces the previous qualifying system which was based on graded stakes earnings.
