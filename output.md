@@ -1,0 +1,4 @@
+## Hermitage Motor Inn
+
+The Taylor Cunningham Hotel — now called the Hermitage Motor Inn — is an historic lodge in Petersburg, Grant County, West Virginia, USA. It was built about 1840, and was originally a two-story brick building in a vernacular Greek Revival style. A third story was added in the early 20th century. It features a two-story porch with turned post and balusters. It has been in continuous operation as an inn since 1881. Also on the property are the contributing wagon shed, storage cellar with granary above, log stable, and smokehouse.
+It was listed on the National Register of Historic Places in 1986.
