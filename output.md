@@ -1,8 +1,7 @@
-## Current-mode logic
+## RKO/Unique Records
 
-Current mode logic (CML), or source-coupled logic (SCL), is a differential digital logic family intended to transmit data at speeds between 312.5 Mbit/s and 3.125 Gbit/s across standard printed circuit boards.
-
-The transmission is point-to-point, unidirectional, and is usually terminated at the destination with 50 Ω resistors to Vcc on both differential lines. CML is frequently used in interfaces to fiber optic components.
-CML signals have also been found useful for connections between modules. CML is the physical layer used in DVI and HDMI video links, the interfaces between a display controller and a monitor.
-This technology has widely been used in design of high-speed integrated systems, such as in telecommunication systems (serial data transceivers, frequency synthesizers, etc.).
+RKO Records and Unique Jazz are two record labels. They began in 1955 as Unique Records, a New York City pop music record label. After several small pop hits, such as "Man in the Raincoat" by fourteen-year-old Priscilla Wright, the label was acquired by RKO General in 1957, who had recently acquired the venerable RKO Movie Studio and placed its owner Stanley Borden in charge of its music entertainment division.
+In an effort to create entertainment synergy, RKO also acquired the struggling Mutual Radio Network in an attempt to enhance the record company by creating a national audience for the product. Unfortunately, the concept behind the arrangement was that rock and roll music was a passing fad, and that the pop music of the 1920s through the early 1950s would endure. With that in mind, RKO signed former recording acts like Rudy Vallee, the Harmonicats and Ted Lewis in hopes of recapturing their glorious pasts. To this mix they added popular movie stars like Herb Jeffries, Edie Adams and Frances Langford, former vaudeville stars (and RKO movie regulars) like the Vagabonds, plus current popular TV stars such as George DeWitt, then the host of the top rated Name That Tune. RKO-Unique also issued the album Music To Suffer By by Leona Anderson.
+To cement this relationship, RKO created the radio program Studio X to carry the Unique Records product. The result was a disaster. Within three years, both the radio network and the record company were suffering huge financial losses and RKO divested both of them. In 1960, the label vanished from the public view. Five years later, it was acquired by Reach Entertainment, who revived the label, splitting the RKO Records and the Unique Jazz into two distinct labels.
+In 1990, RKO Pictures acquired RKO Records and it is now specializes in releasing soundtracks.
 
