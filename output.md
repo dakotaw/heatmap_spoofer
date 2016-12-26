@@ -1,3 +1,3 @@
-## Hassanzai
+## Moina, Tasmania
 
-The Hassanzai is a sub-clan of Yousafzai, which is a Pakhtoon/Pashtoon/Pathan tribe. It is one of the divisions of the Isazai clan of the Yousafzai tribe. Yousafzai tribe is regarded as one of the most powerful, famous, and respected tribes of Pashtoons. Colonel H. C. Wylly (1858–1932) described the Hassanzai with the following sentence:
+Moina is a town 45 km inland from Devonport on the north-west coast of Tasmania, Australia. Moina was the site of a brief gold rush in the late nineteenth century and then one of the largest wolfram and bismuth mines in Tasmania. It has been the centre of continued mineral exploration in the Middlesex district since the first discoveries of tin and tungsten ores on Dolcoath Hill in the 1890s. The name may be a derivation of a small crustacean of the same name found in Tasmanian waters.
