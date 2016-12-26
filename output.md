@@ -1,3 +1,8 @@
-## Moina, Tasmania
+## Current-mode logic
 
-Moina is a town 45 km inland from Devonport on the north-west coast of Tasmania, Australia. Moina was the site of a brief gold rush in the late nineteenth century and then one of the largest wolfram and bismuth mines in Tasmania. It has been the centre of continued mineral exploration in the Middlesex district since the first discoveries of tin and tungsten ores on Dolcoath Hill in the 1890s. The name may be a derivation of a small crustacean of the same name found in Tasmanian waters.
+Current mode logic (CML), or source-coupled logic (SCL), is a differential digital logic family intended to transmit data at speeds between 312.5 Mbit/s and 3.125 Gbit/s across standard printed circuit boards.
+
+The transmission is point-to-point, unidirectional, and is usually terminated at the destination with 50 Ω resistors to Vcc on both differential lines. CML is frequently used in interfaces to fiber optic components.
+CML signals have also been found useful for connections between modules. CML is the physical layer used in DVI and HDMI video links, the interfaces between a display controller and a monitor.
+This technology has widely been used in design of high-speed integrated systems, such as in telecommunication systems (serial data transceivers, frequency synthesizers, etc.).
+
