@@ -1,3 +1,3 @@
-## Eurithia connivens
+## Wheelchair basketball classification
 
-Eurithia connivens is a European species of fly in the family Tachinidae.
+Wheelchair basketball classification is the system that allows for even levels of competition on the court for wheelchair basketball based on functional mobility. The classifications for the sport are 1 point player, 2 point player, 3 point player, 4 point player and 4.5 point player, the greater the player's functional ability. Classification for the sport is set by the International Wheelchair Basketball Federation.n Variation). The famous Kieninger Trap in the Budapest Gambit (1.d4 Nf6 2.c4 e5 3.dxe5 Ng4 4.Bf4 Nc6 5.Nf3 Bb4+ 6.Nbd2 Qe7 7.a3 Ngxe5! 8.axb4?? Nd3#) is named after him (Borik 1986, p. 24).
