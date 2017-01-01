@@ -1,5 +1,3 @@
-## List of North Melbourne Football Club players
+## Tympanostomy tube
 
-This is a list of North Melbourne Football Club players who have made one or more appearance in the Australian Football League, known as the Victorian Football League until 1990.
-
- of the population of the Palestinian National Authority. The Palestinian Central Bureau of Statistics (PCBS) is a sub-branch of the Interior Ministry that has the responsibility for the population and economic statistics of the Palestinian territories. Since Hamas' takeover of Gaza, the position of the Interior Ministry within the Palestinian Security Services is unclear.
+A tympanostomy tube (also known as a grommet, T-tube, ear tube, pressure equalization tube, vent, PE tube or myringotomy tube) is a small tube inserted into the eardrum in order to keep the middle ear aerated for a prolonged period of time, and to prevent the accumulation of fluid in the middle ear. The operation to insert the tube involves a myringotomy and is performed under local or general anesthesia. The tube itself is made in a variety of designs. The most commonly used type is shaped like a grommet. When it is necessary to keep the middle ear ventilated for a very long period, a "T"-shaped tube may be used, as these "T-tubes" can stay in place for 2-4 years. Materials used to construct the tube are most often plastics such as silicone or Teflon. Stainless steel tubes exist, but are no longer in frequent use.
