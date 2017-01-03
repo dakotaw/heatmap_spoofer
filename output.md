@@ -1,3 +1,3 @@
-## Maureilhan
+## Tritonia pallida
 
-Maureilhan is a commune in the Hérault department in southern France.
+Tritonia pallida is a species of dendronotid nudibranch. It is a marine gastropod mollusc in the family Tritoniidae.
