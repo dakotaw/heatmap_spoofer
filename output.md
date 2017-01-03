@@ -1,5 +1,3 @@
-## Budbill
+## Maureilhan
 
-Budbill may refer to:
-David Budbill (1940–2016), American poet and playwright
-Tiger Budbill, contestant in season 1 of the US series The X Factor
+Maureilhan is a commune in the Hérault department in southern France.
