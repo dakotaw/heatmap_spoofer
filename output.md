@@ -1,3 +1,4 @@
-## Distinguished Aviation Cross
+## Dorcadion kraetschmeri
 
-The Distinguished Aviation Cross is a military decoration of the Armed Forces of the Philippines. It is presented for heroism or achievement during aerial operations.st of the Carib population at Bloody Point.t in New Guinea.
+Dorcadion kraetschmeri is a species of beetle in the family Cerambycidae. It was described by Bernhauer in 1988. It is known from Turkey.
+
