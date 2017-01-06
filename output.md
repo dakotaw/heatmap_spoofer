@@ -1,5 +1,3 @@
-## Aldino Muianga
+## Mamiyar Thevai
 
-Aldino Muianga (born May 1, 1950 in Lourenço Marques) is a Mozambican physician and writer.
-He studied surgery and he is the national coordinator of Mozambican Community Work.rlongs and 132 yards (2,937 metres), and it is scheduled to take place each year in September.
-
+Mamiyar Thevai is a 2013 Indian Tamil-language soap opera that aired on Zee Tamil. The show premiered on 4 December 2013 and aired Monday through Friday 8:00PM IST. The show starring by Yuvarani, Subhalekha Sudhakar, Srithika, Mahalakshmi, Vandhana and Sonia. It was directed by Sulaimaan.K.Babu. The show last aired on 21 February 2014 with 244 episodes.
