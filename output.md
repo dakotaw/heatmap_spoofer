@@ -1,4 +1,6 @@
-## Mamiffer
+## Eddie Lane
 
-Mamiffer is an American band based in Seattle, Washington. It started out as a solo project for former Pyramids and Everlovely Lightningheart member Faith Coloccia that later saw several session musicians and collaborators, most consistently Aaron Turner of Isis fame and who would later become Coloccia's husband. Turner and Coloccia also perform in House of Low Culture together. Mamiffer has released several albums, splits and collaborations through various record labels, most prominently through Turner's now-defunct Hydra Head Records and Turner and Coloccia's own SIGE Records. The band is known for its collaborations, including albums recorded with Locrian, Circle and Daniel Menche; and working with session/guest artists from bands including members of These Arms Are Snakes, Helms Alee, Sunn O))) and Wolves in the Throne Room.
-
+For the songwriter see Eddie Lane (songwriter)
+Esmond 'Eddie' Lane (born 25 June 1929) was an Australian rules footballer who played with South Melbourne in the VFL during the 1950s.
+Lane was a 168 cm rover and handy goalkicker. His best season came in 1954 when he won the South Melbourne Best and Fairest award and finished equal 3rd in the Brownlow Medal. He topped the club's goal kicking in both 1954 and 1955.ash concentration are 1) Cash control 2) Cash visibility
+For example, you have 2 bank accounts (i.e. Rizabank and Bank Islam). For each of these bank accounts, you set a minimum of RM10,000. In the actual account, it appears Rizabank has RM15,000 while Bank Islam has RM20,000. The difference RM5,000 (from Rizabank) and RM10,000 (from Bank Islam) will be transferred to Bank Account C. This increases the possibility of using the surplus for other uses.
