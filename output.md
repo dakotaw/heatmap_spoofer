@@ -1,6 +1,6 @@
-## Rigor Mortis (band)
+## Meta Buring
 
-Rigor Mortis is a thrash/speed metal band that formed in 1983 in the Dallas-Fort Worth, Texas metroplex. Two schoolmates Harden Harrison (drums) and Casey Orr (bass) formed the band when they met Mike Scaccia (guitar). The three young men shared an interest in horror/gore films and very heavy music. With Bruce Corbitt on vocals they created some of the heaviest thrash metal at the time often flirting with death metal. They were also one of the only major thrash bands from Texas and virtually created the underground metal scene there. The band was signed by Capitol Records in 1987.
+Caroline Meta Buring (1875 – 7 November 1855) was a South Australian contralto and singing teacher. metroplex. Two schoolmates Harden Harrison (drums) and Casey Orr (bass) formed the band when they met Mike Scaccia (guitar). The three young men shared an interest in horror/gore films and very heavy music. With Bruce Corbitt on vocals they created some of the heaviest thrash metal at the time often flirting with death metal. They were also one of the only major thrash bands from Texas and virtually created the underground metal scene there. The band was signed by Capitol Records in 1987.
 In 2005, the original lineup reunited and performed at Ozzfest 2008 in Texas. In 2009, Rigor Mortis played in Germany at the Keep It True Festival.
 Rigor Mortis recently recorded their first album with the original lineup in 25 years. The album will be called "Slaves To The Grave" and it will be released on October 7, 2014.
 Mike Scaccia also played guitar with industrial metal band Ministry, Revolting Cocks, Lard, and others.
