@@ -1,5 +1,16 @@
-## Kishori Shahane
+## Stanley Odd Jobs
 
-Kishori Shahane is an eminent classical and folk dancer and actress in the Marathi language film industry of India. She is married to Hindi filmmaker Deepak Balraj Vij. She is a producer who helped make a film about the life of Sai Baba of Shirdi.lvania, since 1953. It was renamed the Aberdeen Dad Vail Regatta in 2010 for new sponsor Aberdeen Asset Management, a Scottish investment firm whose U.S. operations are headquartered in Center City Philadelphia.
-The purposes of the Dad Vail Rowing Association are: "to perpetuate the 'Dad' Vail tradition, foster and encourage intercollegiate rowing among colleges new to the sport, and promote schedules for member schools."
-
+The Stanley #1 Odd Jobs was a tool produced by the Stanley Works from 1888 to the 1930s. It combined features of sundry tools, in a single pocketable tool, including:
+Try square
+Mitre square
+T-square
+Marking gauge
+Mortise gauge
+Depth gauge
+Mitre level
+Spirit level and plumb
+Beam compass
+Inside square
+Precision steel ruler
+The name Odd Jobs denotes that the tool does many kinds of sundry tool roles. Its closest cousin among common, modern tools, is the combination square, which shares with the Odd Job the functions of scribing, squaring, level/plumb, and the sliding and locking precision steel ruler. However, the Odd Jobs still has some unique functions in its total package, including the compass, and compensated gauging.
+Reproductions of the Odd Jobs have been made and/or sold by various vendors, including Harbor Freight,and Rockler, currently only GarretWade still stocks them. It has something of a cult following among woodworkers.
