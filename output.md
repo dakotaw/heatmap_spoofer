@@ -1,4 +1,3 @@
-## Germania Wine Cellars
+## Tamara Bunke
 
-Germania Wine Cellars, or Olde Germania Wine Cellars, is a historic winery complex and national historic district located at Hammondsport in Steuben County, New York. The complex was built in nine sections between 1881 and 1902. The majority of the buildings are built of local stone, portions of which are coated in stucco. The complex is currently used for barrel storage.
-It was listed on the National Register of Historic Places in 2000.
+Haydée Tamara Bunke Bider (November 19, 1937 – August 31, 1967), better known as Tania or Tania the Guerrilla, was an Argentine-born East German communist revolutionary and spy who played a prominent role in the Cuban government after the Cuban Revolution and in various Latin American revolutionary movements. She was the only woman to fight alongside Marxist guerrillas under Che Guevara during the Bolivian Insurgency (1966–1967) where she was killed in an ambush by CIA-assisted Bolivian Army Rangers.
