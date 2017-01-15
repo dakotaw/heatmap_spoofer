@@ -1,3 +1,3 @@
-## Tamara Bunke
+## Reach Sambath
 
-Haydée Tamara Bunke Bider (November 19, 1937 – August 31, 1967), better known as Tania or Tania the Guerrilla, was an Argentine-born East German communist revolutionary and spy who played a prominent role in the Cuban government after the Cuban Revolution and in various Latin American revolutionary movements. She was the only woman to fight alongside Marxist guerrillas under Che Guevara during the Bolivian Insurgency (1966–1967) where she was killed in an ambush by CIA-assisted Bolivian Army Rangers.
+Reach Sambath (Khmer: រាជ សម្បតិ្ត) (17 July 1964 – 11 May 2011) was a Cambodian journalist and a former spokesperson and "Chief of Public Affairs" of the Extraordinary Chambers in the Courts of Cambodia (ECCC), commonly known as the "Khmer Rouge Tribunal", set up to try the most senior Khmer Rouge leaders from 1975-1979. Sambath had a master's degree in Journalism from Columbia University, New York, and a career as a university lecturer at the Royal University of Phnom Penh and a reporter in Cambodia with Agence France-Presse since the 1990s.
