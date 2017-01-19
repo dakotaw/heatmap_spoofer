@@ -1,3 +1,4 @@
-## E. Leo Milonas
+## VOX FM
 
-Elias Leo Milonas (born October 23, 1936) is an American lawyer who served for 26 years as a judge in New York State. He is now a partner with the law firm Pillsbury Winthrop.
+VOXFM 106.9 is a community radio station in Wollongong, New South Wales, broadcasting on 106.9 on the FM band. The station's broadcast area in the Illawarra includes Helensburgh in the north to Gerringong in the south, and some listeners receive the signal in the Blue Mountains. The station plays music from the 1950s, 1960s, 1970s and 1980s. It also has jazz, blues and folk programmes, and for programmes for the area's ethnic communities including- Bosnian, Chilean, Croatian, Cyprian, Dutch, Filipino, German, Greek, Irish, Koori, Macedonian, Portuguese, Puka Puka, Scottish, Serbian, Slovenian, Spanish, Tongan, Turkish, African and Polish.
+The station is not privately owned, and is a non-profit organisation funded by government grants, sponsorship and donations. It is run by volunteers and a board of directors elected by station members.
