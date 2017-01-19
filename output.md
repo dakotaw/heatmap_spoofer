@@ -1,4 +1,3 @@
-## Jan Nygren
+## E. Leo Milonas
 
-See also Jan Nygren (politician).
-Jan Nils Johan Nygren (born 10 April 1934) is a Swedish actor, well known for his role as Karlsson (Karlsson's voice) in Karlsson-on-the-Roof.
+Elias Leo Milonas (born October 23, 1936) is an American lawyer who served for 26 years as a judge in New York State. He is now a partner with the law firm Pillsbury Winthrop.
