@@ -1,4 +1,8 @@
-## VOX FM
+## Rule in Shelley's Case
 
-VOXFM 106.9 is a community radio station in Wollongong, New South Wales, broadcasting on 106.9 on the FM band. The station's broadcast area in the Illawarra includes Helensburgh in the north to Gerringong in the south, and some listeners receive the signal in the Blue Mountains. The station plays music from the 1950s, 1960s, 1970s and 1980s. It also has jazz, blues and folk programmes, and for programmes for the area's ethnic communities including- Bosnian, Chilean, Croatian, Cyprian, Dutch, Filipino, German, Greek, Irish, Koori, Macedonian, Portuguese, Puka Puka, Scottish, Serbian, Slovenian, Spanish, Tongan, Turkish, African and Polish.
-The station is not privately owned, and is a non-profit organisation funded by government grants, sponsorship and donations. It is run by volunteers and a board of directors elected by station members.
+The Rule in Shelley's Case is a rule of law that may apply to certain future interests in real property and trusts created in common law jurisdictions. It was applied as early as 1366 in The Provost of Beverly's Case but in its present form is derived from Shelley's Case (1581), in which counsel stated the rule as follows:
+
+…when the ancestor by any gift or conveyance takes an estate of freehold, and in the same gift or conveyance an estate is limited either mediately or immediately to his heirs in fee simple or in fee tail; that always in such cases, 'the heirs' are words of limitation of the estate, not words of purchase.
+
+The Rule was reported by Lord Coke in England in the 17th century as well-settled law. In England, it was abolished by the Law of Property Act 1925. During the twentieth century, it was abolished in most common law jurisdictions, including the majority of the United States. However, in states where the abrogation has been interpreted to apply only to conveyances made after abrogation, the relevance of the Rule today varies from jurisdiction to jurisdiction and in many states remains unclear.
+The Rule is still in operation in all Canadian jurisdictions with the exception of Quebec, which uses civil law, and Manitoba, though it has made an appearance in case law only a few times in the last century.
