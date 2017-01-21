@@ -1,0 +1,4 @@
+## Good Boys
+
+"Good Boys" is a song by the American band Blondie. Released in 2003, it was the only single to be released from their eighth studio album The Curse of Blondie. The single peaked at number 12 in the UK and was the final single from the band for eight years.
+The single was released as part of a two-CD set and on vinyl. CD 1 features live versions of "Maria" and "Rapture", plus the video for "Good Boys" directed by Jonas Åkerlund. CD 2 featured a remix by Giorgio Moroder. The 12-inch vinyl featured remixes by Giorgio Moroder, Return To New York, and Scissor Sisters. The Australian single release coincided with the band's 2003 tour of the country, peaking at number 37 and becoming their first top 40 hit there as a group since "Island of Lost Souls" in 1982.
