@@ -1,4 +1,6 @@
-## Selebi-Phikwe Airport
+## Robert Henry Newell
 
-Selebi-Phikwe Airport (IATA: PKW, ICAO: FBSP) is an airport in Selebi-Phikwe, a town located in the Central District of Botswana. Both the town and airport names are sometimes given as Selebi Phikwe.
-The airport is about 12 kilometres (7.5 mi) southeast of the city. It is also near the gateway of the Tuli Lodge area, where wildlife and resorts are popular. No scheduled services currently operate at the airport. Private and charter traffic serve the airport.
+Robert Henry Newell (December 13, 1836 – July 1901) was a popular 19th century American humorist.
+During the U.S. Civil War, Newell wrote a series of satirical articles using the pseudonym Orpheus C. Kerr, commenting on the war and contemporary society. His articles appeared weekly in the New York Sunday Mercury, where he was the literary editor until 1862, and were published in a series of books. Among other newspapers he worked at, from 1869–74 he wrote for the New York World. From ~1862–65, he was married to famous actress Adah Isaacs Menken.
+The name "Orpheus C. Kerr" was a play on the term "office seeker". At the time, political offices were seen as plums, involving relatively little work and regular pay, and were used by political parties as rewards for faithful party workers.
+During the war, The Orpheus C. Kerr Papers was widely read and Newell enjoyed great popularity. He was one of the favorite humorists of Abraham Lincoln. When General Montgomery C. Meigs admitted that he had never heard of Orpheus C. Kerr or his Papers, Lincoln responded, "anyone who has not read them is a heathen."
