@@ -1,6 +1,8 @@
-## Robert Henry Newell
+## Dubensky (inhabited locality)
 
-Robert Henry Newell (December 13, 1836 – July 1901) was a popular 19th century American humorist.
-During the U.S. Civil War, Newell wrote a series of satirical articles using the pseudonym Orpheus C. Kerr, commenting on the war and contemporary society. His articles appeared weekly in the New York Sunday Mercury, where he was the literary editor until 1862, and were published in a series of books. Among other newspapers he worked at, from 1869–74 he wrote for the New York World. From ~1862–65, he was married to famous actress Adah Isaacs Menken.
-The name "Orpheus C. Kerr" was a play on the term "office seeker". At the time, political offices were seen as plums, involving relatively little work and regular pay, and were used by political parties as rewards for faithful party workers.
+Dubensky (Russian: Дубенский; masculine), Dubenskaya (Дубенская; feminine), or Dubenskoye (Дубенское; neuter) is the name of several rural localities in Russia:
+Dubensky (rural locality), a settlement in Dubensky Settlement Council of Belyayevsky District of Orenburg Oblast
+Dubenskoye, Krasnoyarsk Krai, a selo in Sineborsky Selsoviet of Shushensky District of Krasnoyarsk Krai
+Dubenskoye, Nizhny Novgorod Oblast, a selo in Dubensky Selsoviet of Vadsky District of Nizhny Novgorod Oblast
+Dubenskoye, Penza Oblast, a village in Yermolovsky Selsoviet of Penzensky District of Penza Oblast At the time, political offices were seen as plums, involving relatively little work and regular pay, and were used by political parties as rewards for faithful party workers.
 During the war, The Orpheus C. Kerr Papers was widely read and Newell enjoyed great popularity. He was one of the favorite humorists of Abraham Lincoln. When General Montgomery C. Meigs admitted that he had never heard of Orpheus C. Kerr or his Papers, Lincoln responded, "anyone who has not read them is a heathen."
