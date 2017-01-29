@@ -1,3 +1,3 @@
-## List of diplomatic missions in Ivory Coast
+## Farajabad, Isfahan
 
-This page lists the diplomatic missions in Ivory Coast (Côte d'Ivoire). At present, Abidjan, the largest city in the country, currently hosts 46 embassies. Meanwhile, the capital Yamoussoukro hosts no embassies. Some countries (such as Sweden) evacuated their embassies due to the large amounts of violence in the country.
+Farajabad (Persian: فرج اباد‎‎, also Romanized as Farajābād) is a village in Kenarrudkhaneh Rural District, in the Central District of Golpayegan County, Isfahan Province, Iran. At the 2006 census, its population was 235, in 67 families.
