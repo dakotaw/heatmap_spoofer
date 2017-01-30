@@ -1,3 +1,4 @@
-## Thomas Berkeley (Leics MP 1472)
+## Albanian Regiment (France)
 
-Sir Thomas Berkeley (died 1488), of Wymondham, Leicestershire was an English lawyer and politician who represented Leicestershire in Parliament and served as Sheriff for Rutland, Warwickshire and Leicestershire.n was 235, in 67 families.
+The Albanian Regiment (French: Régiment albanais) was a military unit of the First French Empire formed in 1807 in Corfu. It was commanded by Colonel Jean-Louis Toussaint Minot and served mainly as defence unit in the Septinsular Republic, then a de facto protectorate of the French Empire. It was disbanded in 1814.
+
