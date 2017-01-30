@@ -1,4 +1,3 @@
-## Albanian Regiment (France)
+## Tommi Kovanen
 
-The Albanian Regiment (French: Régiment albanais) was a military unit of the First French Empire formed in 1807 in Corfu. It was commanded by Colonel Jean-Louis Toussaint Minot and served mainly as defence unit in the Septinsular Republic, then a de facto protectorate of the French Empire. It was disbanded in 1814.
-
+Tommi Kovanen (born July 15, 1975) is a Finnish professional ice hockey defenceman who currently plays for Lukko of the SM-liiga.
