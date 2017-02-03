@@ -1,3 +1,4 @@
-## Joel McHale
+## COBRA Rugby Club of Malaysia
 
-Joel Edward McHale (born November 20, 1971) is an American comedian, actor, writer, television producer, and television host. He is known for hosting The Soup and portraying Jeff Winger on the NBC/Yahoo! sitcom Community. He has appeared in such films as Spy Kids: All the Time in the World (2011) and Ted (2012). He currently stars in the CBS sitcom The Great Indoors.
+The COBRA RUGBY CLUB is a prominent rugby club in Malaysia under the Selangor Rugby Union and Malaysia Rugby Union. Over the years COBRA has produced many outstanding rugby players at the national and state level. Members of COBRA are also active and well represented in the Malaysian Rugby Union, Selangor Rugby Union and the Malaysian Rugby Referees’ Society.
+It was originally known as the Combined Old Boys Rugby Association (COBRA).
