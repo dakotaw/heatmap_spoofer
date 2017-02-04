@@ -1,4 +1,4 @@
-## COBRA Rugby Club of Malaysia
+## 1950 24 Hours of Le Mans
 
-The COBRA RUGBY CLUB is a prominent rugby club in Malaysia under the Selangor Rugby Union and Malaysia Rugby Union. Over the years COBRA has produced many outstanding rugby players at the national and state level. Members of COBRA are also active and well represented in the Malaysian Rugby Union, Selangor Rugby Union and the Malaysian Rugby Referees’ Society.
-It was originally known as the Combined Old Boys Rugby Association (COBRA).
+The 1950 24 Hours of Le Mans was the 18th Grand Prix of Endurance, an.4d took place on 24 and 25 June 1950. It was won by the French father-and-son pairing of Louis and Jean-Louis Rosier driving a privately entered Talbot-Lago.
+
