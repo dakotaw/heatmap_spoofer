@@ -1,3 +1,3 @@
-## The Well-paid
+## This Time (Robert Cray album)
 
-The Well-paid (in Spanish La bien pagada) is a Mexican drama film directed by Alberto Gout. It was filmed in 1948 and starring María Antonieta Pons and Víctor Junco.
+This Time is a blues album by Robert Cray. It was released on August 11, 2009, through Vanguard Records, and Nozzle Records. It is his first studio album in four years, also featuring a reconstructed line-up. The Robert Cray band toured in the United States supporting the album. They appeared on the Late Show with David Letterman on August 18, 2009 promoting the album, and played the song "Trouble and Pain"
