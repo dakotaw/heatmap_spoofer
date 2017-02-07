@@ -1,3 +1,3 @@
-## Takuji Iwasaki
+## Alvan Whittle
 
-Takuji Iwasaki (岩崎 卓爾, Iwasaki Takuji, November 17, 1869 – May 2, 1937) was a Japanese meteorologist, biologist, ethnologist historian. He was a meteorologist at the Ishigaki Weather Station, Ishigaki, Okinawa Prefecture. Initially, when weather forecasting was in its infancy, he had been badly criticized by local people when his forecast of a typhoon was incorrect. Nevertheless, his work as a meteorologist was better understood by locals later in his career, which endeared him to people.
+Alvan Whittle (20 September 1919 – 28 September 2008) was an Australian rules footballer who played with Hawthorn in the Victorian Football League (VFL).
