@@ -1,3 +1,3 @@
-## Shire of Tungamah
+## Muhammad Iqbal Choudhary
 
-The Shire of Tungamah was a local government area in the Goulburn Valley region about 240 kilometres (149 mi) northeast of Melbourne, the state capital of Victoria, Australia. The shire covered an area of 1,143 square kilometres (441.3 sq mi), and existed from 1878 until 1994.sh Senate from 1893 to 1902.
+Muhammad Iqbal Choudhary, (Urdu: محمد اقبال چودھری‎ born 11 September 1959) is a scientist and scholar in the field of organic chemistry from Pakistan. He is known for his research in various areas relating to natural product chemistry. He has more than 800 research publications, including 32 books published, and 24 patents. He has been awarded the Tamgha-e-Imtiaz, Sitara-e-Imtiaz, and Hilal-e-Imtiaz. In 2015 he was recognised as the second most productive scientist in Pakistan.
