@@ -1,3 +1,3 @@
-## Muhammad Iqbal Choudhary
+## Danny Moulis
 
-Muhammad Iqbal Choudhary, (Urdu: محمد اقبال چودھری‎ born 11 September 1959) is a scientist and scholar in the field of organic chemistry from Pakistan. He is known for his research in various areas relating to natural product chemistry. He has more than 800 research publications, including 32 books published, and 24 patents. He has been awarded the Tamgha-e-Imtiaz, Sitara-e-Imtiaz, and Hilal-e-Imtiaz. In 2015 he was recognised as the second most productive scientist in Pakistan.
+Danny Moulis (born 25 July 1960) is an Australian former association football player. After retiring at a young age due to injury, Moulis became a well-regarded lawyer in Australia. He now has his own practice in Canberra, Moulis Legal, and is Australia's leading lawyer in the area of trade remedies.
