@@ -1,3 +1,4 @@
-## Netlib
+## Fernando de Almeida
 
-Netlib is a repository of software for scientific computing maintained by AT&T, Bell Laboratories, the University of Tennessee and Oak Ridge National Laboratory. Netlib comprises a large number of separate programs and libraries. Most of the code is written in Fortran, with some programs in other languages.
+Fernando Pereira de Almeida (born August 3, 1985 in São Caetano do Sul, São Paulo) is a Brazilian sprinter, who specialized in the 400 metres. De Almeida represented the host nation Brazil at the 2007 Pan American Games in Rio de Janeiro, where he placed sixth for the national sprint team in the men's 4 × 400 m relay, with a time of 3:05.87.
+At the 2008 Summer Olympics in Beijing, de Almeida competed for the men's 400 metres this time, as an individual athlete. He ran in the third heat against seven other athletes, including Costa Rica's Nery Brenes and Nigeria's James Godday. He finished the race in fifth place by approximately one sixth of a second (0.16) ahead of Zimbabwe's Lewis Banda, with a time of 46.60 seconds. De Almeida, however, failed to advance into the semi-finals, as he placed forty-sixth overall and was ranked below three mandatory slots for the next round.
